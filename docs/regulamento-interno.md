@@ -143,3 +143,84 @@ Artigo 9º. O condômino responderá perante o condomínio pelos atos praticados
 **Artigo 66º.** Para adentrar nas dependências do Condomínio, o prestador de serviço e convidados, deverão apresentar na recepção sua identificação. Incluir item indicando que o morador tem que acompanhar o prestador da portaria até o apartamento (não frequente).
 
 **Artigo 67º.** Caberá à administração alocar as correspondências e mercadorias entregues na recepção, diariamente, nos locais distribuídos na sala de entregas localizada no térreo do edifício, para retirada pelo condômino, com exceção as de caráter judicial, que, de conformidade com o artigo 248, parágrafo 4º, do Código de Processo Civil vigente, será declarada válida sua entrega ao funcionário da recepção, que, entretanto, poderá recusar o recebimento, se declarar, por escrito, sob as penas da lei, que o destinatário da correspondência está ausente. No caso das correspondências que necessitam de assinatura no ato do recebimento, será acionado o destinatário, constatado sua ausência, deverá a correspondência ser registrada em livro próprio, para posterior retirada pelo condômino mediante protocolo.
+
+## 6º. CAPÍTULO - DO HALL SOCIAL
+
+**Artigo 68º.** O hall social deverá ser usado como área de entrada no edifício pelas visitas e sala de espera para elas, que podem ser atendidas pelos moradores neste espaço. Não é permitido jogos, badernas, brincadeiras, comidas e bebidas de qualquer tipo neste local. Esse local poderá ser utilizado para mini mercado operado por terceiros.
+
+## 7º. CAPÍTULO - DO SALÃO DE FESTAS TERREO
+
+**Artigo 69º.** O condômino que efetuou a reserva do salão de festas será o responsável pelos seus convidados, sejam eles adultos ou crianças, e por qualquer ocorrência durante a realização do evento.
+
+**Artigo 70º.** As áreas ao redor do salão de festas destinam-se ao uso exclusivo dos moradores do edifício.
+
+**Artigo 71º.** O Salão de festas poderá ser utilizados para festas de aniversários, comemorações e reuniões, exclusivamente dos condôminos com os seus convidados e desde que estas não afetem os princípios da moral e dos bons costumes. Fica estipulado que de segunda a quinta e domingo o horário será das 10:00 até as 22:00, as sextas, sábados e vésperas de feriado das 10:00 até as 00:00. Vale ressaltar, que independente do horário permitido, todos deverão respeitar a lei do silêncio não incomodando aos condôminos das demais unidades, seja por barulho ou qualquer outro motivo. Ainda, caberá ao usuário a responsabilidade de que seus convidados não circulem pelo condomínio após esse horário recolhendo os mesmos à área específica do salão e do espaço gastronômico. Caso seja contratado empresas para a realização de eventos, os materiais locados deverão ser retirados do espaço no mesmo dia ou no máximo no dia seguinte entre as 8:00 e 9:00 da manhã.
+
+**Artigo 72º.** O uso do salão de festas deverá ser solicitado através do aplicativo disponibilizado pela administração. Havendo dois ou mais interessados em fazer uso do salão, no mesmo dia, terá preferência aquele que primeiro fez a reserva oficialmente.
+
+**Artigo 73º.** O condômino/Inquilino que promover uma festa será responsável por todo e qualquer dano causado às paredes, vidros, portas, móveis, instalações etc., existentes naquele local e nas áreas adjacentes conforme previsto no art. 55.
+
+**Artigo 74º.** Antes e após a realização de cada festa o Zelador fará uma vistoria nos locais utilizados acompanhado do condômino responsável, elaborando um check list em formulário próprio que ficará arquivado na administração.
+
+**Artigo 75º.** A ausência de anotação ou uma anotação incompleta ou malfeita será considerada como falta disciplinar do Zelador.
+
+**Artigo 76º.** Será cobrada uma taxa de utilização, cujo valor será aprovado em Assembleia, cabendo ao Síndico, quando julgar oportuno, propor a inclusão da revisão no valor na Ordem do Dia das Assembleias. Inicialmente, o valor da taxa de utilização será de 25% (vinte e cinco por cento) do valor do salário mínimo paulistano vigente. O pagamento será cobrado junto ao condomínio do próximo mês. No caso de cancelamento da reserva pelo condômino não haverá devolução da taxa.
+
+**Artigo 77º.** As receitas provenientes das taxas de utilização do salão de festas serão registradas a favor do condomínio em conta contábil específica para a limpeza,manutenção e melhorias de todos os itens relacionados ao local.
+
+**Artigo 78º.** Após o uso do salão, o usuário deverá efetuar a limpeza “leve”, ou seja, limpar a área do mesmo jogando no lixo latas, papéis, restos de alimento etc. Apenas a limpeza “pesada” (lavagem dos banheiros, lavagem do piso, etc...) será efetuada pelos funcionários do condomínio.
+
+**Artigo 79º.** Deverá ser respeitada a capacidade máxima de pessoas no salão, a ser
+definida pela administração com base na Legislação vigente.10
+
+**Artigo 80º.** Para utilização do salão de festas nas datas de Natal e sua véspera, bem como véspera de Ano Novo, será realizado um sorteio entre os moradores que desejarem alugar. Assim, nestas datas, a regra para utilização não mais será a ordem de antecedência da reserva, mas sim o critério de sorteio, que deverá ser realizado até o dia 15 de novembro, sorteio este no qual participarão todos os moradores que tiverem feito a reserva. No caso de desistência, seguirá a lista de espera.
+
+## 8º. CAPÍTULO - DO SALÃO DE FESTAS 2º PAVIMENTO
+
+**Artigo 81º.** O condômino que efetuou a reserva do salão de festas será o responsável pelos seus convidados, sejam eles adultos ou crianças, e por qualquer ocorrência durante a realização do evento.
+
+**Artigo 82º.** As áreas ao redor do salão de festas destinam-se ao uso exclusivo dos moradores do edifício.
+
+**Artigo 83º.** O Salão de festas poderá ser utilizados para festas de aniversários, comemorações e reuniões, exclusivamente dos condôminos com os seus convidados e desde que estas não afetem os princípios da moral e dos bons costumes. Fica estipulado que de segunda a quinta e domingo o horário será das 10:00 até as 22:00, as sextas, sábados e vésperas de feriado das 10:00 até as 00:00. Vale ressaltar, que independente do horário permitido, todos deverão respeitar a lei do silêncio não incomodando aos condôminos das demais unidades, seja por barulho ou qualquer outro motivo. Ainda, caberá ao usuário a responsabilidade de que seus convidados não circulem pelo condomínio após esse horário recolhendo os mesmos à área específica do salão e do espaço gastronômico. Caso seja contratado empresas para a realização de eventos, os materiais locados deverão ser retirados do espaço no mesmo dia ou no máximo no dia seguinte entre as 8:00 e 9:00 da manhã.
+
+**Artigo 84º.** O uso do salão de festas deverá ser solicitado através do aplicativo disponibilizado pela administração. Havendo dois ou mais interessados em fazer uso do salão, no mesmo dia, terá preferência aquele que primeiro fez a reserva oficialmente.
+
+**Artigo 85º.** O condômino/Inquilino que promover uma festa será responsável por todo e qualquer dano causado às paredes, vidros, portas, móveis, instalações etc., existentes naquele local e nas áreas adjacentes conforme previsto no art. 55.
+
+**Artigo 86º.** Antes e após a realização de cada festa o Zelador fará uma vistoria nos locais utilizados acompanhado do condômino responsável, elaborando um check list em formulário próprio que ficará arquivado na administração.
+
+**Artigo 87º.** A ausência de anotação ou uma anotação incompleta ou malfeita será considerada como falta disciplinar do Zelador.
+
+**Artigo 88º.** Será cobrada uma taxa de utilização, cujo valor será aprovado em Assembleia, cabendo ao Síndico, quando julgar oportuno, propor a inclusão da revisão no valor na Ordem do Dia das Assembleias. Inicialmente, o valor da taxa de utilização será de 20% (vinte por cento) do valor do salário mínimo paulistano vigente. O pagamento será cobrado junto ao condomínio do próximo mês. No caso de cancelamento da reserva pelo condômino não haverá devolução da taxa.
+
+**Artigo 89º.** As receitas provenientes das taxas de utilização do salão de festas serão registradas a favor do condomínio em conta contábil específica para a limpeza e manutenção de todos os itens relacionados ao local
+
+**Artigo 90º.** Após o uso do salão, o usuário deverá efetuar a limpeza “leve”, ou seja, limpar a área do mesmo jogando no lixo latas, papéis, restos de alimento etc. Apenas a limpeza “pesada” (lavagem dos banheiros, lavagem do piso, etc...) será efetuada pelos funcionários do condomínio.
+
+**Artigo 91º.** Deverá ser respeitada a capacidade máxima de pessoas no salão, a ser definida pela administração com base na Legislação vigente.
+
+**Artigo 92º.** Para utilização do salão de festas nas datas de Natal e sua véspera, bem como véspera de Ano Novo, será realizado um sorteio entre os moradores que desejarem alugar. Assim, nestas datas, a regra para utilização não mais será a ordem de antecedência da reserva, mas sim o critério de sorteio, que deverá ser realizado até o dia 15 de novembro, sorteio este no qual participarão todos os moradores que tiverem feito a reserva. No caso de desistência, seguirá a lista de espera.
+
+## 9º. CAPÍTULO - DO ESPAÇO GOURMET
+
+**Artigo 93º.** O condômino que efetuou a reserva do espaço gourmet será o responsável pelos seus convidados, sejam eles adultos ou crianças, e por qualquer ocorrência durante a realização do evento.
+
+**Artigo 94º.** As áreas ao redor do espaço gourmet destinam-se ao uso exclusivo dos moradores do edifício.
+
+**Artigo 95º.** O espaço gourmet poderá ser utilizados para festas de aniversários, comemorações e reuniões, exclusivamente dos condôminos com os seus convidados e desde que estas não afetem os princípios da moral e dos bons costumes. Fica estipulado que de segunda a quinta e domingo o horário será das 10:00 até as 22:00, as sextas, sábados e vésperas de feriado das 10:00 até as 00:00. Vale ressaltar, que independente do horário permitido, todos deverão respeitar a lei do silêncio não incomodando aos condôminos das demais unidades, seja por barulho ou qualquer outro motivo. Ainda, caberá ao usuário a responsabilidade de que seus convidados não circulem pelo condomínio após esse horário recolhendo os mesmos à área específica do salão e do espaço gastronômico. Caso seja contratado empresas para a realização de eventos, os materiais locados deverão ser retirados do espaço no mesmo dia ou no máximo no dia seguinte entre as 8:00 e 9:00 da manhã.
+
+**Artigo 96º.** O uso do salão de festas deverá ser solicitado através do aplicativo disponibilizado pela administração. Havendo dois ou mais interessados em fazer uso do salão, no mesmo dia, terá preferência aquele que primeiro fez a reserva oficialmente.
+
+**Artigo 97º.** O condômino/Inquilino que promover uma festa será responsável por todo e qualquer dano causado às paredes, vidros, portas, móveis, instalações etc., existentes naquele local e nas áreas adjacentes conforme previsto no art. 55.
+
+**Artigo 98º.** Antes e após a realização de cada festa o Zelador fará uma vistoria nos locais utilizados acompanhado do condômino responsável, elaborando um check list em formulário próprio que ficará arquivado na administração.
+
+**Artigo 99º.** A ausência de anotação ou uma anotação incompleta ou malfeita será considerada como falta disciplinar do Zelador. Artigo 100º. Será cobrada uma taxa de utilização, cujo valor será aprovado em Assembleia, cabendo ao Síndico, quando julgar oportuno, propor a inclusão da revisão no valor na Ordem do Dia das Assembleias. Inicialmente, o valor da taxa de utilização será de 20% (vinte por cento) do valor do salário-mínimo paulistano vigente. O pagamento será cobrado junto ao condomínio do próximo mês. No caso de cancelamento da reserva pelo condômino não haverá devolução da taxa.
+
+**Artigo 101º.** As receitas provenientes das taxas de utilização do espaço gourmet serão registradas a favor do condomínio em conta contábil específica para a limpeza, manutenção e melhoria de todos os itens relacionados ao local.
+
+**Artigo 102º.** Após o uso do espaço, o usuário deverá efetuar a limpeza “leve”, ou seja, limpar a área do mesmo jogando no lixo latas, papéis, restos de alimento etc. Apenas a limpeza “pesada” (lavagem dos banheiros, lavagem do piso, etc...) será efetuada pelos funcionários do condomínio.
+
+**Artigo 103º.** Deverá ser respeitada a capacidade máxima de pessoas no espaço, a ser definida pela administração com base na Legislação vigente.
+
+**Artigo 104º.** Para utilização do salão de festas nas datas de Natal e sua véspera, bem como véspera de Ano Novo, será realizado um sorteio entre os moradores que desejarem alugar. Assim, nestas datas, a regra para utilização não mais será a ordem de antecedência da reserva, mas sim o critério de sorteio, que deverá ser realizado até o dia 15 de novembro, sorteio este no qual participarão todos os moradores que tiverem feito a reserva. No caso de desistência, seguirá a lista de espera.
