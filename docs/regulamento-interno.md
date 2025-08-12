@@ -88,30 +88,58 @@ Artigo 9º. O condômino responderá perante o condomínio pelos atos praticados
 
 **Artigo 40º.** O condomínio e o Síndico não assumem qualquer responsabilidade resultante de danos, acidentes, furtos ou roubos que possam ocorrer durante as mudanças.
 
-**Artigo 41º.** Não será permitida a execução de quaisquer obras que atinjam a estrutura de concreto e a modificação da disposição das paredes internas que contenham canalizações comuns;
+**Artigo 41º.** Não será permitida a execução de quaisquer obras que atinjam a estrutura de concreto e a modificação da disposição das paredes internas que contenham canalizações comuns.
 
-**Artigo 42º.** O responsável pelo apartamento deverá cadastrar os seus empregados e prestadores de serviços e autorizar a sua entrada para a realização das obras na portaria ou por e- mail ao síndico ou outra forma eletrônica que for estabelecida pela administração, com a antecedência mínima de 03 (três) dias úteis;
+**Artigo 42º.** O responsável pelo apartamento deverá cadastrar os seus empregados e prestadores de serviços e autorizar a sua entrada para a realização das obras na portaria ou por e- mail ao síndico ou outra forma eletrônica que for estabelecida pela administração, com a antecedência mínima de 03 (três) dias úteis.
 
-**Artigo 43º.** O condômino que desejar realizar obras em seu apartamento deverá apresentar previamente ao Condomínio o Termo de Obras, com a especificação do conteúdo da obra, a empresa ou profissional contratado e o prazo estimado para a execução dos trabalhos;
+**Artigo 43º.** O condômino que desejar realizar obras em seu apartamento deverá apresentar previamente ao Condomínio o Termo de Obras, com a especificação do conteúdo da obra, a empresa ou profissional contratado e o prazo estimado para a execução dos trabalhos.
 
-**Artigo 44º.** O Termo de Obras deverá ser entregue junto com os projetos, plantas, desenhos, estudos de carga e qualquer outro documento necessário, devendo ser entregue com antecedência mínima de 03 (três) dias úteis contados da data que se pretende iniciar as obras;
+**Artigo 44º.** O Termo de Obras deverá ser entregue junto com os projetos, plantas, desenhos, estudos de carga e qualquer outro documento necessário, devendo ser entregue com antecedência mínima de 03 (três) dias úteis contados da data que se pretende iniciar as obras.
 
-**Artigo 45º.** As obras deverão estar nos termos da NBR 16280 da ABNT e só será permitido o seu início após: a) a entrega de laudo especificando o conteúdo da obra, do cronograma de execução assinado por profissional técnico capacitado e acompanhada da devida ART (Anotação de Responsabilidade Técnica);
+**Artigo 45º.** As obras deverão estar nos termos da NBR 16280 da ABNT e só será permitido o seu início após: a) a entrega de laudo especificando o conteúdo da obra, do cronograma de execução assinado por profissional técnico capacitado e acompanhada da devida ART (Anotação de Responsabilidade Técnica).
 
 **Artigo 46º.** Caso o condomínio constate que as obras colocarão em risco a edificação, alterem as áreas comuns e afetem os direitos dos demais condôminos, este não autorizará o início da realização das obras e deverá comunicar ao condômino de forma fundamentada.
 
-**Artigo 47º.** Se ocorrer a recusa da obra por parte do condomínio, o condômino poderá apresentar recurso que será julgado na assembleia geral devidamente convocada para este fim;
+**Artigo 47º.** Se ocorrer a recusa da obra por parte do condomínio, o condômino poderá apresentar recurso que será julgado na assembleia geral devidamente convocada para este fim.
 
-**Artigo 48º.** As normas e condições previstas na NBR 16280 da ABNT passam a ser obrigatórias e deverão ser estritamente cumpridas e observadas, por condôminos e pelo Condomínio, para qualquer intervenção a ser feita nas dependências do Condomínio, tanto nas áreas comuns quanto nas privativas;
+**Artigo 48º.** As normas e condições previstas na NBR 16280 da ABNT passam a ser obrigatórias e deverão ser estritamente cumpridas e observadas, por condôminos e pelo Condomínio, para qualquer intervenção a ser feita nas dependências do Condomínio, tanto nas áreas comuns quanto nas privativas.
 
-**Artigo 49º.** O condômino, em cujo apartamento for realizada obra, será o responsável pela perfeita limpeza do elevador de serviço, áreas dos corredores e outros locais de uso comum, não podendo ser depositado em tais áreas quaisquer objetos e entulhos;
+**Artigo 49º.** O condômino, em cujo apartamento for realizada obra, será o responsável pela perfeita limpeza do elevador de serviço, áreas dos corredores e outros locais de uso comum, não podendo ser depositado em tais áreas quaisquer objetos e entulhos.
 
-**Parágrafo único:** É responsabilidade do morador e/ou condômino, cujo o apartamento for realizada obra, a colocação de proteção (papelão, vinil e similares) no piso do hall social do seu andar durante todo o período da obra;
+**Parágrafo único:** É responsabilidade do morador e/ou condômino, cujo o apartamento for realizada obra, a colocação de proteção (papelão, vinil e similares) no piso do hall social do seu andar durante todo o período da obra.
 
-**Artigo 50º.** Prestadores de serviço, execução de obras, reparos, montagens, instalações, uso de furadeiras, lixadeiras, esmeril e outros equipamentos serão permitidos de segunda a sexta-feira das 08h00 às 17h00 e aos sábados, das 08h00 ao meio-dia, sendo proibida aos domingos e feriados e emendas de feriados;
+**Artigo 50º.** Prestadores de serviço, execução de obras, reparos, montagens, instalações, uso de furadeiras, lixadeiras, esmeril e outros equipamentos serão permitidos de segunda a sexta-feira das 08h00 às 17h00 e aos sábados, das 08h00 ao meio-dia, sendo proibida aos domingos e feriados e emendas de feriados.
 
-**Artigo 51º.** Os reparos de caráter urgente e inadiável poderão ser realizados em qualquer dia e hora, com comunicação ao Síndico;
+**Artigo 51º.** Os reparos de caráter urgente e inadiável poderão ser realizados em qualquer dia e hora, com comunicação ao Síndico.
 
-**Artigo 52º.** O entulho proveniente de obras será removido por conta do morador e/ou condômino do apartamento, incluindo a locação de caçambas, que deverá ser devidamente acondicionado e transportado até o local de descarte, utilizando para este fim exclusivamente o elevador de serviço;
+**Artigo 52º.** O entulho proveniente de obras será removido por conta do morador e/ou condômino do apartamento, incluindo a locação de caçambas, que deverá ser devidamente acondicionado e transportado até o local de descarte, utilizando para este fim exclusivamente o elevador de serviço.
 
-**Artigo 53º.** Não será permitida a permanência de veículos de cargas no Condomínio;
+**Artigo 53º.** Não será permitida a permanência de veículos de cargas no Condomínio.
+
+## 5º. CAPÍTULO - DA PORTARIA / RECEPÇÃO
+
+**Artigo 54º.** O ambiente da portaria é de frequência exclusiva dos porteiros, zelador e membros do Corpo Diretivo, sendo restrito o acesso de condôminos.
+
+**Artigo 55º.** É proibido qualquer tipo de aglomeração na portaria, com o intuito de evitar riscos com relação a segurança do condomínio.
+
+**Artigo 56º.** O porteiro tem por norma só permitir a entrada de visitantes após a autorização do morador visitado, sem a mesma o visitante permanecerá do lado de fora do portão principal.
+
+**Artigo 57º.** Fica expressamente proibida a entrada no condomínio de entregadores de móveis, roupas, objetos, pizzas, lanches etc., bem como de vendedores ou representantes, desacompanhados do responsável pela unidade, nas dependências de uso comum, tanto na entrada como na saída do edifício. No caso de prestadores de serviço (pedreiros, marceneiros etc.) e corretores de imóveis, será exigida autorização por escrito do proprietário do imóvel, devendo constar, obrigatoriamente, o RG ou CPF da pessoa autorizada a entrar no imóvel.
+
+**Artigo 58º.** Qualquer dano causado ao condomínio pelo entregador, será de responsabilidade do condômino.
+
+**Artigo 59º.** O porteiro é autoridade quando está a serviço do condomínio e para tanto deve ser respeitado nas ordens e determinações instruídas pelo Zelador e Síndico.
+
+**Artigo 60º.** Não é permitido deixar sob guarda de qualquer funcionário do condomínio chaves ou senhas de acesso dos apartamentos. O condômino que desobedecer a esta regra e, por qualquer motivo, o fizer, o fará por livre arbítrio, eximindo o condomínio e o funcionário de qualquer problema gerado por este ato.
+
+**Artigo 61º.** Quaisquer ocorrências, sugestões ou reclamações, deverão ser encaminhadas pelos condôminos ao Síndico através dos meios digitais disponíveis ou livros de ocorrência e divulgados pela administração.
+
+**Artigo 62º.** Por questões de segurança, o morador que estiver conversando na entrada do edifício, do lado de fora ou de dentro, deverá manter a porta fechada.
+
+**Artigo 63º.** Comunicar previamente a administração por escrito, via e-mail ou via internet, toda e qualquer obra a ser executada nas unidades, tais como, instalações elétricas, hidráulicas, bem como instalação ou troca de pisos, esquadrias e janelas, sendo certo que tais obras, consertos ou reparações serão de iniciativa, risco e a expensas do próprio condômino.
+
+**Artigo 64º.** Deverão ser fornecidos detalhes, tais como: nome da empresa e das pessoas que executarão os serviços; data e horário previsto para início e finalização, e; qualquer observação adicional que seja relevante. Artigo 65º. Somente será permitido o ingresso de convidados, prestadores de serviços, na ausência do condômino da unidade, mediante autorização prévia deste, por escrito, e-mail ou aplicativo, encaminhada à administração do Condomínio, com no mínimo 24 (vinte e quatro) horas de antecedência.
+
+**Artigo 66º.** Para adentrar nas dependências do Condomínio, o prestador de serviço e convidados, deverão apresentar na recepção sua identificação. Incluir item indicando que o morador tem que acompanhar o prestador da portaria até o apartamento (não frequente).
+
+**Artigo 67º.** Caberá à administração alocar as correspondências e mercadorias entregues na recepção, diariamente, nos locais distribuídos na sala de entregas localizada no térreo do edifício, para retirada pelo condômino, com exceção as de caráter judicial, que, de conformidade com o artigo 248, parágrafo 4º, do Código de Processo Civil vigente, será declarada válida sua entrega ao funcionário da recepção, que, entretanto, poderá recusar o recebimento, se declarar, por escrito, sob as penas da lei, que o destinatário da correspondência está ausente. No caso das correspondências que necessitam de assinatura no ato do recebimento, será acionado o destinatário, constatado sua ausência, deverá a correspondência ser registrada em livro próprio, para posterior retirada pelo condômino mediante protocolo.
