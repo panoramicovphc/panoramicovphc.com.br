@@ -227,305 +227,143 @@ definida pela administração com base na Legislação vigente.10
 
 ## 10º. CAPÍTULO - DAS CHURRASQUEIRAS
 
-Artigo 105º. A churrasqueira destina-se ao uso dos moradores do edifício e seus
-convidados, respeitando a capacidade do local.
+**Artigo 105º.** A churrasqueira destina-se ao uso dos moradores do edifício e seus convidados, respeitando a capacidade do local.
 
-Artigo 106º. Para que não haja duplicidade de uso, ou seja, mais de uma reserva
-para o mesmo dia, o condômino que desejar usá-la através de sistema
-de agendamento eletrônico a ser adotado pelo condomínio. Havendo
-dois ou mais interessados em fazer uso da churrasqueira no mesmo
-dia, terá preferência aquele que primeiro fez a reserva.
+**Artigo 106º.** Para que não haja duplicidade de uso, ou seja, mais de uma reserva para o mesmo dia, o condômino que desejar usá-la através de sistema de agendamento eletrônico a ser adotado pelo condomínio. Havendo dois ou mais interessados em fazer uso da churrasqueira no mesmo dia, terá preferência aquele que primeiro fez a reserva.
 
-Artigo 107º. O condomínio disponibilizará apenas os equipamentos básicos (grelha
-e espetos) para uso da churrasqueira, ficando quaisquer outros por
-conta de cada usuário.
+**Artigo 107º.** O condomínio disponibilizará apenas os equipamentos básicos (grelha e espetos) para uso da churrasqueira, ficando quaisquer outros por conta de cada usuário.
 
-Artigo 108º. Qualquer dano causado pelo condômino ou seus convidados, será de
-responsabilidade da unidade que fez a reserva.
+**Artigo 108º.** Qualquer dano causado pelo condômino ou seus convidados, será de responsabilidade da unidade que fez a reserva.
 
-Artigo 109º. Fica estipulado que de segunda a quinta e domingo o horário será das
-10:00 até as 22:00, as sextas, sábados e vésperas de feriado das 10:00
-até as 00:00. Vale ressaltar, que independente do horário permitido,
-todos deverão respeitar a lei do silêncio não incomodando aos
-condôminos das demais unidades, seja por barulho ou qualquer outro
-motivo. Ainda, caberá ao usuário a responsabilidade de que seus
-convidados não circulem pelo condomínio após esse horário
-recolhendo os mesmos à área específica da churrasqueira. Caso seja
-contratado empresas para a realização de eventos, os materiais
-locados deverão ser retirados no mesmo dia do evento ou no máximo
-no dia seguinte das 8:00 as 9:00 da manhã.
+**Artigo 109º.** Fica estipulado que de segunda a quinta e domingo o horário será das 10:00 até as 22:00, as sextas, sábados e vésperas de feriado das 10:00 até as 00:00. Vale ressaltar, que independente do horário permitido, todos deverão respeitar a lei do silêncio não incomodando aos condôminos das demais unidades, seja por barulho ou qualquer outro motivo. Ainda, caberá ao usuário a responsabilidade de que seus convidados não circulem pelo condomínio após esse horário recolhendo os mesmos à área específica da churrasqueira. Caso seja contratado empresas para a realização de eventos, os materiais locados deverão ser retirados no mesmo dia do evento ou no máximo no dia seguinte das 8:00 as 9:00 da manhã.
 
-Artigo 110º. O usuário deverá, após o uso da churrasqueira, efetuar a limpeza
-“leve”, ou seja, limpar a área da mesma jogando no lixo latas, papéis,
-restos de alimento etc., bem como apagar eventual fogo
-remanescente. Apenas a limpeza “pesada” (desengorduramento,
-lavagem interna da churrasqueira, lavagem do piso, etc...) será
-efetuada pelos funcionários do condomínio.
+**Artigo 110º.** O usuário deverá, após o uso da churrasqueira, efetuar a limpeza “leve”, ou seja, limpar a área da mesma jogando no lixo latas, papéis, restos de alimento etc., bem como apagar eventual fogo remanescente. Apenas a limpeza “pesada” (desengorduramento, lavagem interna da churrasqueira, lavagem do piso, etc...) será efetuada pelos funcionários do condomínio.
 
-Artigo 111º. Será cobrada uma taxa de utilização, cujo valor será aprovado em
-Assembleia, cabendo ao Síndico, quando julgar oportuno, propor a
-inclusão da revisão no valor na Ordem do Dia das Assembleias.
-Inicialmente, o valor da taxa de utilização será de 10% (dez por cento)
-do salário-mínimo paulistano vigente. O pagamento será cobrado
-junto ao condomínio do próximo mês. No caso de cancelamento da
-reserva pelo condômino não haverá devolução da taxa. A
-churrasqueira poderá ser utilizada para festas de aniversários,
-comemorações e reuniões dos moradores do edifício, desde que estas
-não afetem os princípios da moral e dos bons costumes. Ainda, caberá
-ao condômino a responsabilidade de recolher todos os seus pertences
-do espaço locado.
+**Artigo 111º.** Será cobrada uma taxa de utilização, cujo valor será aprovado em Assembleia, cabendo ao Síndico, quando julgar oportuno, propor a inclusão da revisão no valor na Ordem do Dia das Assembleias. Inicialmente, o valor da taxa de utilização será de 10% (dez por cento) do salário-mínimo paulistano vigente. O pagamento será cobrado junto ao condomínio do próximo mês. No caso de cancelamento da reserva pelo condômino não haverá devolução da taxa. A churrasqueira poderá ser utilizada para festas de aniversários, comemorações e reuniões dos moradores do edifício, desde que estas não afetem os princípios da moral e dos bons costumes. Ainda, caberá ao condômino a responsabilidade de recolher todos os seus pertences do espaço locado.
 
-Artigo 112º. Antes e após a utilização da churrasqueira, o Zelador fará uma vistoria
-nos locais utilizados acompanhado do condômino responsável,14
-anotando o resultado dessa inspeção no livro de ocorrência existente
-na portaria do edifício ou na ficha de reserva.
+**Artigo 112º.** Antes e após a utilização da churrasqueira, o Zelador fará uma vistoria nos locais utilizados acompanhado do condômino responsável, anotando o resultado dessa inspeção no livro de ocorrência existente na portaria do edifício ou na ficha de reserva.
 
-Artigo 113º. Será obrigatório a presença do zelador/ou alguém responsável pelo
-condomínio e do morador responsável na vistoria elaborando um
-checklist em formulário próprio que ficará arquivado na administração
+**Artigo 113º.** Será obrigatório a presença do zelador/ou alguém responsável pelo condomínio e do morador responsável na vistoria elaborando um checklist em formulário próprio que ficará arquivado na administração.
 
-Artigo 114º. A receita proveniente das taxas de utilização da churrasqueira será
-revertida a favor do condomínio em conta contábil específica para
-realização da limpeza, manutenção e melhoria de todos os itens
-relacionados ao local.
+**Artigo 114º.** A receita proveniente das taxas de utilização da churrasqueira será revertida a favor do condomínio em conta contábil específica para realização da limpeza, manutenção e melhoria de todos os itens relacionados ao local.
 
-Artigo 115º. Deverá ser respeitada a capacidade máxima de pessoas na
-churrasqueira, a ser definida pela administração com base na
-Legislação vigente.
+**Artigo 115º.** Deverá ser respeitada a capacidade máxima de pessoas na churrasqueira, a ser definida pela administração com base na Legislação vigente.
 
-Artigo 116º. Para utilização da churrasqueira nas datas de Natal e sua véspera, bem
-como véspera de Ano Novo e Ano Novo, será realizado um sorteio
-entre os moradores que desejarem alugar. Assim, nestas datas, a regra
-para utilização não mais será a ordem de antecedência da reserva, mas
-sim o critério de sorteio, que deverá ser realizado até o dia 15 de
-novembro, sorteio este no qual participarão todos os moradores que
-tiverem feito a reserva. No caso de desistência seguirá a lista de
-espera.
+**Artigo 116º.** Para utilização da churrasqueira nas datas de Natal e sua véspera, bem como véspera de Ano Novo e Ano Novo, será realizado um sorteio entre os moradores que desejarem alugar. Assim, nestas datas, a regra para utilização não mais será a ordem de antecedência da reserva, mas sim o critério de sorteio, que deverá ser realizado até o dia 15 de novembro, sorteio este no qual participarão todos os moradores que tiverem feito a reserva. No caso de desistência seguirá a lista de espera.
 
 ## 11º. CAPÍTULO - DA PISCINA
 
-Artigo 117º. O horário de utilização da piscina será: De terça a domingo bem como
-nos feriados: das 06:30 hs às 22:00 hs. Às Segundas Feiras: fechada
-para manutenção (exceto feriados, onde o horário da manutenção
-será revisado). O condomínio não dispõe de salva-vidas e, portanto,
-não se responsabiliza por quaisquer acidentes ou afogamentos,
-devendo o responsável pelo apartamento zelar para que somente
-pessoas habilitadas a utilizem.
+**Artigo 117º.** O horário de utilização da piscina será: De terça a domingo bem como nos feriados: das 06:30 hs às 22:00 hs. Às Segundas Feiras: fechada para manutenção (exceto feriados, onde o horário da manutenção será revisado). O condomínio não dispõe de salva-vidas e, portanto, não se responsabiliza por quaisquer acidentes ou afogamentos, devendo o responsável pelo apartamento zelar para que somente pessoas habilitadas a utilizem.
 
-Artigo 118º. Na época do verão poderá haver extensão nos horários de utilização,
-a critério do Corpo Diretivo do condomínio.
+**Artigo 118º.** Na época do verão poderá haver extensão nos horários de utilização, a critério do Corpo Diretivo do condomínio.
 
-Artigo 119º. É proibida a permanência de crianças menores de 12 anos sem
-acompanhante responsável (maior de 18 anos) na área da piscina.
-Exceção: Mediante termo de responsabilidade assinado pelos pais ou
-responsáveis e entregue na zeladoria, os menores poderão frequent ar
-sem acompanhamento do responsável.
+**Artigo 119º.** É proibida a permanência de crianças menores de 12 anos sem acompanhante responsável (maior de 18 anos) na área da piscina. Exceção: Mediante termo de responsabilidade assinado pelos pais ou responsáveis e entregue na zeladoria, os menores poderão frequent ar sem acompanhamento do responsável.
 
-Artigo 120º. O uso de bronzeador dentro da piscina é proibido, sendo permitida
-sua utilização somente para efeito de banho de sol nas áreas que
-circundam a mesma.
+**Artigo 120º.** O uso de bronzeador dentro da piscina é proibido, sendo permitida sua utilização somente para efeito de banho de sol nas áreas que circundam a mesma.
 
-Artigo 121º. São proibidas atividades nas piscinas que venham pôr em risco a
-integridade física dos frequentadores
-Artigo 122º. Não é permitida a circulação, fora da área da piscina, em trajes de
-banho.
+**Artigo 121º.** São proibidas atividades nas piscinas que venham pôr em risco a integridade física dos frequentadores.
 
-Artigo 123º. Não é permitida a utilização do elevador sem antes enxugar-se
-perfeitamente. Deverá ser utilizado o elevador de serviço ou conforme
-definido pelo Corpo diretivo para ida e vinda do condômino à piscina.
-Para troca de roupas, o condômino deverá utilizar os vestiários anexos
-à mesma.
+**Artigo 122º.** Não é permitida a circulação, fora da área da piscina, em trajes de banho.
 
-Artigo 124º. A piscina é de uso exclusivo dos moradores do condomínio. Este artigo
-poderá sofrer alterações pelo Corpo diretivo dependendo da
-necessidade.
+**Artigo 123º.** Não é permitida a utilização do elevador sem antes enxugar-se
+perfeitamente. Deverá ser utilizado o elevador de serviço ou conforme definido pelo Corpo diretivo para ida e vinda do condômino à piscina. Para troca de roupas, o condômino deverá utilizar os vestiários anexos à mesma.
 
-Artigo 125º. Será permitido levar para a área da piscina bebidas, desde que
-acondicionadas em recipientes que não sejam de vidro. O usuário que
-levar bebidas deverá recolher seu lixo (latas, garrafas plásticas e
-outros), não devendo deixá-los na área da piscina. As bebidas e as
-comidas deverão ser consumidas na área anexa à piscina (solarium e
-deck), sendo proibido o consumo dentro da água.
-Bebês e crianças pequenas que ainda não controlem suas
-necessidades fisiológicas ficam obrigados a usar frauda própria para
-piscina. Em caso de fezes ou urina na piscina, o condômino
-responsável arcará com os custos da limpeza.
+**Artigo 124º.** A piscina é de uso exclusivo dos moradores do condomínio. Este artigo poderá sofrer alterações pelo Corpo diretivo dependendo da necessidade.
+
+**Artigo 125º.** Será permitido levar para a área da piscina bebidas, desde que acondicionadas em recipientes que não sejam de vidro. O usuário que levar bebidas deverá recolher seu lixo (latas, garrafas plásticas e outros), não devendo deixá-los na área da piscina. As bebidas e as comidas deverão ser consumidas na área anexa à piscina (solarium e deck), sendo proibido o consumo dentro da água. Bebês e crianças pequenas que ainda não controlem suas necessidades fisiológicas ficam obrigados a usar frauda própria para piscina. Em caso de fezes ou urina na piscina, o condômino responsável arcará com os custos da limpeza.
 
 ## 12º. CAPÍTULO - DO SALÃO DE JOGOS
 
-Artigo 126º. O salão de jogos destina-se ao uso exclusivo dos condôminos acima de 12 anos
-de idade, podendo ser utilizada por convidados dos condôminos, limitados a 3
-(três) pessoas, desde que devidamente acompanhados
+**Artigo 126º.** O salão de jogos destina-se ao uso exclusivo dos condôminos acima de 12 anos de idade, podendo ser utilizada por convidados dos condôminos, limitados a 3 (três) pessoas, desde que devidamente acompanhados.
 
-Artigo 127º. O horário de funcionamento do salão de jogos será de segunda a quinta e
-domingo das 8:00 até as 22:00, sexta, sábado e véspera de feriado das 8:00 até
-as 0:00 Vale ressaltar, que independente do horário permitido, todos deverão
-respeitar a lei do silêncio não incomodando aos condôminos das demais
-unidades, seja por barulho ou qualquer outro motivo.
+**Artigo 127º.** O horário de funcionamento do salão de jogos será de segunda a quinta e domingo das 8:00 até as 22:00, sexta, sábado e véspera de feriado das 8:00 até as 0:00 Vale ressaltar, que independente do horário permitido, todos deverão respeitar a lei do silêncio não incomodando aos condôminos das demais unidades, seja por barulho ou qualquer outro motivo.
 
-Artigo 128º. O salão permanecerá fechado. Para solicitar a chave na portaria e retirar os
-demais equipamentos, tais como bolas de bilhar, raquetes e bolas de ping-pong,
-bola de pebolim, peças dos jogos de dama e xadrez, etc., permanecerão na
-portaria, devendo o morador, ao retirá-los, conferir a quantidade dos jogos,
-assinando em livro próprio, onde deverão constar a data, horário e
-apartamento. Ao sair deverá devolver os mesmos itens assim como a chave na
-portaria.
+**Artigo 128º.** O salão permanecerá fechado. Para solicitar a chave na portaria e retirar os demais equipamentos, tais como bolas de bilhar, raquetes e bolas de ping-pong, bola de pebolim, peças dos jogos de dama e xadrez, etc., permanecerão na portaria, devendo o morador, ao retirá-los, conferir a quantidade dos jogos, assinando em livro próprio, onde deverão constar a data, horário e apartamento. Ao sair deverá devolver os mesmos itens assim como a chave na portaria.
 
-Artigo 129º. Quando do término do uso do salão, a chave deverá ser devolvida na portaria,
-devendo constar no livro os mesmos itens do artigo anterior.
+**Artigo 129º.** Quando do término do uso do salão, a chave deverá ser devolvida na portaria, devendo constar no livro os mesmos itens do artigo anterior.
 
-Artigo 130º. Caso permaneçam outros moradores no salão, após a saída daquele que havia
-retirado a chave, ambos deverão se dirigir à portaria, anotando no livro a
-“passagem” da chave para o morador remanescente.
+**Artigo 130º.** Caso permaneçam outros moradores no salão, após a saída daquele que havia retirado a chave, ambos deverão se dirigir à portaria, anotando no livro a “passagem” da chave para o morador remanescente.
 
-Artigo 131º. O morador é responsável por qualquer dano aos equipamentos, causados por
-si ou seus visitantes e arcará com os custos dos reparos ou substituições dos
-mesmos.16
+**Artigo 131º.** O morador é responsável por qualquer dano aos equipamentos, causados por si ou seus visitantes e arcará com os custos dos reparos ou substituições dos mesmos.
 
-§1º É proibido ingressar ou permanecer no salão em trajes de banho e molhado.
+**§1º:** É proibido ingressar ou permanecer no salão em trajes de banho e molhado.
 
-§2º É proibido a retirar dos móveis destinado ao espaço para utilização na área
-comum
+**§2º:** É proibido a retirar dos móveis destinado ao espaço para utilização na área comum.
 
-Artigo 132º. É permitido o consumo de alimentos e bebidas exceto garrafas, copos ou de
-quaisquer outros utensílios de vidro, bem como qualquer tipo de bebida
-alcoólica. Após a utilização do espaço, manter mesmo limpo e descartar o lixo
-em local apropriado
+**Artigo 132º.** É permitido o consumo de alimentos e bebidas exceto garrafas, copos ou de quaisquer outros utensílios de vidro, bem como qualquer tipo de bebida alcoólica. Após a utilização do espaço, manter mesmo limpo e descartar o lixo em local apropriado.
 
-Artigo 133º. É terminantemente proibido fumar (cigarros/cigarrilhas de palha, cigarros
-eletrônicos e narguilé e outros assemelhados) conforme Lei antifumo
-12.546/2011
+**Artigo 133º.** É terminantemente proibido fumar (cigarros/cigarrilhas de palha, cigarros eletrônicos e narguilé e outros assemelhados) conforme Lei antifumo 12.546/2011.
 
 ## 13º. CAPÍTULO - BRINQUEDOTECA
 
-Artigo 134º. A brinquedoteca destina-se ao uso exclusivo dos condôminos de até 10 anos de
-idade, podendo ser utilizada por convidados dos condôminos, limitados a 2
-(duas) pessoas, desde que devidamente acompanhados.
+**Artigo 134º.** A brinquedoteca destina-se ao uso exclusivo dos condôminos de até 10 anos de idade, podendo ser utilizada por convidados dos condôminos, limitados a 2 (duas) pessoas, desde que devidamente acompanhados.
 
-§1º O horário de funcionamento será de segunda à segunda das 8:00 às 22:00
-horas.
+**§1º:** O horário de funcionamento será de segunda à segunda das 8:00 às 22:00 horas.
 
-§ 2º: Moradores maiores que 12 anos não poderão utilizar o espaço, exceção
-feita aos responsáveis pelos menores durante o uso da área.
+**§2º:** Moradores maiores que 12 anos não poderão utilizar o espaço, exceção feita aos responsáveis pelos menores durante o uso da área.
 
-§ 3º: O Condomínio não se responsabiliza por perdas, extravios ou danos de
-objetos pessoais ocorridos no local, ou por eventuais acidentes ocorridos com
-os usuários durante o uso do espaço.
+**§3º:** O Condomínio não se responsabiliza por perdas, extravios ou danos de objetos pessoais ocorridos no local, ou por eventuais acidentes ocorridos com os usuários durante o uso do espaço.
 
-§ 4º: Não serão permitidos trajes de banho nem brincadeiras que possam
-danificar as instalações e que incomodem os demais moradores. Cabe aos
-usuários zelar pela conservação dos acessórios e do espaço todo. O
-funcionário do Condomínio está autorizado a coibir abusos e a qualquer
-momento interromper o uso inadequado.
+**§4º:** Não serão permitidos trajes de banho nem brincadeiras que possam danificar as instalações e que incomodem os demais moradores. Cabe aos usuários zelar pela conservação dos acessórios e do espaço todo. O funcionário do Condomínio está autorizado a coibir abusos e a qualquer momento interromper o uso inadequado.
 
-Artigo 135º. O CONDÔMINO será totalmente responsável, nas dependências da
-brinquedoteca, por danos que venha a causar a si próprio ou a terceiros, assim
-como será responsável pela limpeza de detritos que porventura levar para o
-local.
+**Artigo 135º.** O CONDÔMINO será totalmente responsável, nas dependências da brinquedoteca, por danos que venha a causar a si próprio ou a terceiros, assim como será responsável pela limpeza de detritos que porventura levar para o local.
 
-§1º É permitida a utilização de alimentos comestíveis leves, sucos e águas nas
-dependências do espaço.
+**§1º:** É permitida a utilização de alimentos comestíveis leves, sucos e águas nas dependências do espaço.
 
-§2º Quanto aos utensílios, será permitido apenas o uso de copos e garrafas de
-plástico, desde que observadas às normas de segurança e limpeza
+**§2º:** Quanto aos utensílios, será permitido apenas o uso de copos e garrafas de plástico, desde que observadas às normas de segurança e limpeza.
 
-§3º Não é permitido o uso ou porte de garrafas, copos ou de quaisquer outros
-utensílios de vidro, bem como qualquer tipo de bebida alcoólica nas17
-dependências do espaço.
+**§3º:** Não é permitido o uso ou porte de garrafas, copos ou de quaisquer outros utensílios de vidro, bem como qualquer tipo de bebida alcoólica nas dependências do espaço.
 
-4º É expressamente proibido fazer troca de fraldas e higiene pessoal no salão
-de recreação infantil.
+**§4º:** É expressamente proibido fazer troca de fraldas e higiene pessoal no salão de recreação infantil.
 
-Artigo 136º. Recairá sobre o CONDÔMINO toda e qualquer responsabilidade resultante da
-utilização da brinquedoteca por danos materiais causados ao CONDOMÍNIO ou
-suas instalações, bem como furtos, roubos ou incêndio.
+**Artigo 136º.** Recairá sobre o CONDÔMINO toda e qualquer responsabilidade resultante da utilização da brinquedoteca por danos materiais causados ao CONDOMÍNIO ou suas instalações, bem como furtos, roubos ou incêndio.
 
-§1- O CONDÔMINO, em caso de danos de qualquer espécie providenciará no
-prazo estabelecido pelo Síndico, às obras e/ou consertos aos danos que der
-causa.
+**§1:** O CONDÔMINO, em caso de danos de qualquer espécie providenciará no prazo estabelecido pelo Síndico, às obras e/ou consertos aos danos que der causa.
 
-§2º As obras serão fiscalizadas pela administração do CONDOMÍNIO.
+**§2º:** As obras serão fiscalizadas pela administração do CONDOMÍNIO.
 
-§3º Ao CONDÔMINO facultará solicitar ao CONDOMÍNIO que contrate os
-serviços de reparos, cujos custos serão cobrados diretamente do CONDÔMINO.
+**§3º:** Ao CONDÔMINO facultará solicitar ao CONDOMÍNIO que contrate os serviços de reparos, cujos custos serão cobrados diretamente do CONDÔMINO.
 
-Artigo 137º. É terminantemente proibido fumar (cigarros/cigarrilhas de palha, cigarros
-eletrônicos, narguilé e outros assemelhados) conforme Lei antifumo
-12.546/2011
+**Artigo 137º.** É terminantemente proibido fumar (cigarros/cigarrilhas de palha, cigarros eletrônicos, narguilé e outros assemelhados) conforme Lei antifumo 12.546/2011.
 
 ## 14º. CAPÍTULO - DO ESPAÇO ADOLESCENTE
 
-Artigo 138º. A espaço adolescente destina-se ao uso exclusivo dos condôminos de 10 até 18
-anos de idade, podendo ser utilizada por convidados dos condôminos, limitados
-a 3 (três) pessoas, desde que devidamente acompanhados.
+**Artigo 138º.** A espaço adolescente destina-se ao uso exclusivo dos condôminos de 10 até 18 anos de idade, podendo ser utilizada por convidados dos condôminos, limitados a 3 (três) pessoas, desde que devidamente acompanhados.
 
-§1º O horário de funcionamento será de segunda à segunda das 8:00 às 22:00
-horas.
+**§1º:** O horário de funcionamento será de segunda à segunda das 8:00 às 22:00 horas.
 
-§ 2º: O Condomínio não se responsabiliza por perdas, extravios ou danos de
-objetos pessoais ocorridos no local, ou por eventuais acidentes ocorridos com
-os usuários durante o uso do espaço.
+**§2º:** O Condomínio não se responsabiliza por perdas, extravios ou danos de objetos pessoais ocorridos no local, ou por eventuais acidentes ocorridos com os usuários durante o uso do espaço.
 
-§ 3º: Não serão permitidos trajes de banho nem brincadeiras que possam
-danificar as instalações e que incomodem os demais moradores. Cabe aos
-usuários zelar pela conservação dos acessórios e do espaço todo. O funcionário
-do Condomínio está autorizado a coibir abusos e a qualquer momento
-interromper o uso inadequado.
+**§3º:** Não serão permitidos trajes de banho nem brincadeiras que possam danificar as instalações e que incomodem os demais moradores. Cabe aos usuários zelar pela conservação dos acessórios e do espaço todo. O funcionário do Condomínio está autorizado a coibir abusos e a qualquer momento interromper o uso inadequado.
 
-Artigo 139º. O CONDÔMINO será totalmente responsável, nas dependências do espaço, por
-danos que venha a causar a si próprio ou a terceiros, assim como será
-responsável pela limpeza de detritos que porventura levar para o local.
+**Artigo 139º.** O CONDÔMINO será totalmente responsável, nas dependências do espaço, por danos que venha a causar a si próprio ou a terceiros, assim como será responsável pela limpeza de detritos que porventura levar para o local.
 
-§1º É permitida a utilização de alimentos comestíveis leves, sucos e águas nas
-dependências do espaço.
+**§1º:** É permitida a utilização de alimentos comestíveis leves, sucos e águas nas dependências do espaço.
 
-§2º Quanto aos utensílios, será permitido apenas o uso de copos e garrafas de
-plástico, desde que observadas às normas de segurança e limpeza
+**§2º:** Quanto aos utensílios, será permitido apenas o uso de copos e garrafas de plástico, desde que observadas às normas de segurança e limpeza.
 
-§3º Não é permitido o uso ou porte de garrafas, copos ou de quaisquer outros18
-utensílios de vidro, bem como qualquer tipo de bebida alcoólica nas
-dependências do espaço.
+**§3º:** Não é permitido o uso ou porte de garrafas, copos ou de quaisquer outros utensílios de vidro, bem como qualquer tipo de bebida alcoólica nas dependências do espaço.
 
-Artigo 140º. Recairá sobre o CONDÔMINO toda e qualquer responsabilidade resultante da
-utilização do espaço adolescente por danos materiais causados ao
-CONDOMÍNIO ou suas instalações, bem como furtos, roubos ou incêndio.
+**Artigo 140º.** Recairá sobre o CONDÔMINO toda e qualquer responsabilidade resultante da utilização do espaço adolescente por danos materiais causados ao CONDOMÍNIO ou suas instalações, bem como furtos, roubos ou incêndio.
 
-§1- O CONDÔMINO, em caso de danos de qualquer espécie providenciará no
-prazo estabelecido pelo Síndico, às obras e/ou consertos aos danos que der
-causa.
+**§1:** O CONDÔMINO, em caso de danos de qualquer espécie providenciará no prazo estabelecido pelo Síndico, às obras e/ou consertos aos danos que der causa.
 
-§2º As obras serão fiscalizadas pela administração do CONDOMÍNIO.
+**§2º:** As obras serão fiscalizadas pela administração do CONDOMÍNIO.
 
-§3º Ao CONDÔMINO facultará solicitar ao CONDOMÍNIO que contrate os
-serviços de reparos, cujos custos serão cobrados diretamente do CONDÔMINO.
+**§3º:** Ao CONDÔMINO facultará solicitar ao CONDOMÍNIO que contrate os serviços de reparos, cujos custos serão cobrados diretamente do CONDÔMINO.
 
-Artigo 141º. É terminantemente proibido fumar (cigarros/cigarrilhas de palha, cigarros
-eletrônicos, narguilé e outros assemelhados) conforme Lei antifumo
-12.546/2011
+**Artigo 141º.** É terminantemente proibido fumar (cigarros/cigarrilhas de palha, cigarros eletrônicos, narguilé e outros assemelhados) conforme Lei antifumo 12.546/2011.
 
 ## 15º. CAPÍTULO - DO ESPAÇO PILATES / YOGA
 
-Artigo 142º. O Espaço Pilates / Yoga destina-se a uso exclusivo dos
-condôminos/moradores e seus respectivos familiares residentes
-em suas unidades autônomas. Entende-se para efeito desta por
-condômino/morador todo aquele que, comprovadamente, através
-de registro adequado, residir nas unidades autônomas, exceto
-empregados destes e os empregados do condomínio.
+**Artigo 142º.** O Espaço Pilates / Yoga destina-se a uso exclusivo dos condôminos/moradores e seus respectivos familiares residentes em suas unidades autônomas. Entende-se para efeito desta por condômino/morador todo aquele que, comprovadamente, através de registro adequado, residir nas unidades autônomas, exceto empregados destes e os empregados do condomínio.
 
-Artigo 143º. O horário de funcionamento do espaço será de segunda a segunda
-das 08:00 às 22:00 horas.
+**Artigo 143º.** O horário de funcionamento do espaço será de segunda a segunda das 08:00 às 22:00 horas.
 
-Artigo 144º. O Síndico, ouvido o Conselho Consultivo, poderá determinar
-horário de funcionamento diverso do Regulamento, bem como,
-promover a sua interdição total ou parcial, em circunstâncias
-julgadas necessárias
+**Artigo 144º.** O Síndico, ouvido o Conselho Consultivo, poderá determinar horário de funcionamento diverso do Regulamento, bem como, promover a sua interdição total ou parcial, em circunstâncias julgadas necessárias.
 
-Artigo 145º. É expressamente proibido a qualquer título e em qualquer horário
-o uso de garrafas, copos ou qualquer outro material de vidro, bem
-como fumar ou levar alimentos para o espaço.
+**Artigo 145º.** É expressamente proibido a qualquer título e em qualquer horário o uso de garrafas, copos ou qualquer outro material de vidro, bem como fumar ou levar alimentos para o espaço.
 
-Artigo 146º. É permitido o acesso de profissional no Espaço desde que,
-acompanhado de um morador responsável.
+**Artigo 146º.** É permitido o acesso de profissional no Espaço desde que, acompanhado de um morador responsável.
 
-Artigo 147º. Caberá ao Corpo Diretivo definir se haverá ou não cobrança de taxa
-de utilização do local. E em caso positivo definir o seu valor.
+**Artigo 147º.** Caberá ao Corpo Diretivo definir se haverá ou não cobrança de taxa de utilização do local. E em caso positivo definir o seu valor.
