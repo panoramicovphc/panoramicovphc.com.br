@@ -51,3 +51,67 @@ Artigo 9º. O condômino responderá perante o condomínio pelos atos praticados
 **Artigo 22º.** Manter sempre a porta de entrada da sua unidade devidamente fechada. Em hipótese alguma, o Condomínio será responsabilizado por furtos ou extravios ocorridos dentro das unidades autônomas; Em casos de viagem ou ausência prolongada do condômino, o mesmo deverá informar por escrito à Administradora ou via e-mail ou via internet, o tempo previsto da ausência, o endereço e telefones para contato em casos de emergência, assim como, fechar os registros da unidade.
 
 **Artigo 23º.** Fica proibido o consumo de cigarros, cigarrilhas, charutos, cachimbos ou de qualquer outro produto fumígeno, cigarro eletrônico, narguilé, derivado ou não do tabaco nas áreas comuns do Condomínio, de conformidade com a legislação vigente
+
+## 3º. CAPÍTULO - DA LIMPEZA
+
+**Artigo 24º.** O condomínio manterá no seu quadro de funcionários pessoa(s) encarregada(s) de efetuar a limpeza nas áreas comuns, porém todos os condôminos deverão zelar pela limpeza e conservação dele.
+
+**Artigo 25º.** É proibido depositar objetos ou outros materiais em qualquer das áreas de uso comum, como por exemplo, na entrada, passagens, escadas, elevadores, vestíbulos e garagem. Os volumes assim depositados serão removidos pelo Zelador e eventuais despesas com a remoção ou devolução dos mesmos serão repassadas ao condômino infrator.
+
+**Artigo 26º.** O lixo das unidades deverá ser embalado em sacos plásticos resistentes e, depois, depositado nas lixeiras localizadas no segundo subsolo. É expressamente proibido despejar o lixo “In natura” diretamente nas lixeiras. O entulho resultante de obras nas unidades não poderá ser depositado em áreas fora das mesmas em hipótese alguma. A separação do lixo entre reciclável e orgânico deverá obedecer às normas estabelecidas pelo Corpo Diretivo. Cacos de vidro deverão ser devidamente embalados para não ferir os funcionários da limpeza.
+
+**Artigo 27º.** É proibido deixar restos de lixo ou outras varreduras nas áreas e partes de uso comum do edifício.
+
+**Artigo 28º.** É proibido atirar pelas janelas, para a rua ou áreas comuns, fragmentos de lixo, papéis, pontas de cigarros, ou quaisquer outros objetos. Caso aconteça um incidente, deverá ser comunicado imediatamente a portaria.
+
+**Artigo 29º.** Com exceção unicamente da área de serviço interna dos apartamentos, é proibido estender, bater, secar ou colocar tapetes, roupas ou quaisquer materiais nas janelas, sacadas ou outros sítios fronteiros, nos quais não poderão ser instalados varais, de que tipo forem, uma vez visíveis do exterior.
+
+**Artigo 30º.** É proibida a lavagem de janelas executada pelo lado externo das mesmas, salvo quando executada por empresa habilitada e obedecidas todas as regras de segurança. No caso de limpeza leve efetuada pelos próprios condôminos ou seus funcionários, a mesma deverá ser feita de maneira que não caiam resíduos nas áreas comuns.
+
+**Artigo 31º.** É importante para o meio ambiente a participação de todos os moradores no Programa de Coleta Seletiva de Lixo do condomínio, cujas normas e procedimentos serão definidos pelo Síndico ou Corpo Diretivo e deverão ser seguidos por todos.
+
+## 4º. CAPÍTULO - DAS MUDANÇAS, ENTREGAS, OBRAS E REFORMAS
+
+**Artigo 32º.** As mudanças para dentro ou fora do edifício deverão ser comunicadas pelo interessado ao Síndico e/ou Zelador, com antecedência, para organização do mesmo e preparação do condomínio. Com relação aos dias e horários vide artigo 33.
+
+**Artigo 33º.** As mudanças poderão ser realizadas das 08h00min às 17h00min, de segunda à sexta-feira e aos sábados das 8h00min ao meio-dia. Não serão permitidas mudanças aos domingos e feriados.Artigo 34º. As mudanças, totais ou parciais, deverão ser comunicadas por escrito ou via sistema à administração com no mínimo 48 (quarenta e oito) horas de antecedência, sob pena de não ser permitida sua realização.
+
+**Artigo 35º.** O transporte deverá ser feito pelo elevador de serviço ou outro indicado pelo Síndico ou zelador, conforme definido neste regulamento.
+
+**Artigo 36º.** Antes de ser iniciada a mudança, o Zelador deverá providenciar a colocação de proteção no elevador.
+
+**Artigo 37º.** O condômino e/ou inquilino do apartamento interessado na mudança são responsáveis solidários por todo e qualquer dano ocasionado a terceiros e ao condomínio.
+
+**Artigo 38º.** Em caso de qualquer dano, o Zelador comunicará, imediatamente, aos responsáveis pela mudança e ao Síndico, a fim de que seja providenciado o ressarcimento dos prejuízos.
+
+**Artigo 39º.** O transporte de carga que possa afetar o funcionamento dos elevadores, por peso excessivo (cofre, arquivos etc.), deverá ser previamente autorizado pela empresa conservadora dos elevadores, sem o que, não será permitido. Eventuais içamentos de objetos pelo lado externo da edificação só poderão ser executados por empresa especializada.
+
+**Artigo 40º.** O condomínio e o Síndico não assumem qualquer responsabilidade resultante de danos, acidentes, furtos ou roubos que possam ocorrer durante as mudanças.
+
+**Artigo 41º.** Não será permitida a execução de quaisquer obras que atinjam a estrutura de concreto e a modificação da disposição das paredes internas que contenham canalizações comuns;
+
+**Artigo 42º.** O responsável pelo apartamento deverá cadastrar os seus empregados e prestadores de serviços e autorizar a sua entrada para a realização das obras na portaria ou por e- mail ao síndico ou outra forma eletrônica que for estabelecida pela administração, com a antecedência mínima de 03 (três) dias úteis;
+
+**Artigo 43º.** O condômino que desejar realizar obras em seu apartamento deverá apresentar previamente ao Condomínio o Termo de Obras, com a especificação do conteúdo da obra, a empresa ou profissional contratado e o prazo estimado para a execução dos trabalhos;
+
+**Artigo 44º.** O Termo de Obras deverá ser entregue junto com os projetos, plantas, desenhos, estudos de carga e qualquer outro documento necessário, devendo ser entregue com antecedência mínima de 03 (três) dias úteis contados da data que se pretende iniciar as obras;
+
+**Artigo 45º.** As obras deverão estar nos termos da NBR 16280 da ABNT e só será permitido o seu início após: a) a entrega de laudo especificando o conteúdo da obra, do cronograma de execução assinado por profissional técnico capacitado e acompanhada da devida ART (Anotação de Responsabilidade Técnica);
+
+**Artigo 46º.** Caso o condomínio constate que as obras colocarão em risco a edificação, alterem as áreas comuns e afetem os direitos dos demais condôminos, este não autorizará o início da realização das obras e deverá comunicar ao condômino de forma fundamentada.
+
+**Artigo 47º.** Se ocorrer a recusa da obra por parte do condomínio, o condômino poderá apresentar recurso que será julgado na assembleia geral devidamente convocada para este fim;
+
+**Artigo 48º.** As normas e condições previstas na NBR 16280 da ABNT passam a ser obrigatórias e deverão ser estritamente cumpridas e observadas, por condôminos e pelo Condomínio, para qualquer intervenção a ser feita nas dependências do Condomínio, tanto nas áreas comuns quanto nas privativas;
+
+**Artigo 49º.** O condômino, em cujo apartamento for realizada obra, será o responsável pela perfeita limpeza do elevador de serviço, áreas dos corredores e outros locais de uso comum, não podendo ser depositado em tais áreas quaisquer objetos e entulhos;
+
+**Parágrafo único:** É responsabilidade do morador e/ou condômino, cujo o apartamento for realizada obra, a colocação de proteção (papelão, vinil e similares) no piso do hall social do seu andar durante todo o período da obra;
+
+**Artigo 50º.** Prestadores de serviço, execução de obras, reparos, montagens, instalações, uso de furadeiras, lixadeiras, esmeril e outros equipamentos serão permitidos de segunda a sexta-feira das 08h00 às 17h00 e aos sábados, das 08h00 ao meio-dia, sendo proibida aos domingos e feriados e emendas de feriados;
+
+**Artigo 51º.** Os reparos de caráter urgente e inadiável poderão ser realizados em qualquer dia e hora, com comunicação ao Síndico;
+
+**Artigo 52º.** O entulho proveniente de obras será removido por conta do morador e/ou condômino do apartamento, incluindo a locação de caçambas, que deverá ser devidamente acondicionado e transportado até o local de descarte, utilizando para este fim exclusivamente o elevador de serviço;
+
+**Artigo 53º.** Não será permitida a permanência de veículos de cargas no Condomínio;
