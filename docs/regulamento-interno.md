@@ -507,3 +507,173 @@ reparos será de responsabilidade do condômino.
 **Artigo 188º.** Quaisquer defeitos nos brinquedos devem ser comunicados imediatamente ao zelador do condomínio.
 
 **Artigo 189º.** É terminantemente proibido fumar (cigarros/cigarrilhas de palha, cigarros eletrônicos, narguilé e outros assemelhados) conforme Lei antifumo 12.546/2011.
+
+## 21º. CAPÍTULO - DOS ELEVADORES
+
+**Artigo 190º.** Os elevadores são equipamentos destinados a facilitar e dar conforto à vida do condômino. Portanto, é dever de todos fazer o bom uso dos mesmos e manter o seu estado de conservação o melhor possível.
+
+**Artigo 191º.** Os elevadores deverão ser utilizados da seguinte forma: a) elevadores sociais: somente moradores e visitantes b) elevadores de serviço: materiais relacionados a obras, animais, mudanças/ entregas, compras de supermercado/feira, bicicletas e prestadores de serviços. c) elevador híbrido: animais, mudanças/ entregas, compras de supermercado/feira, bicicletas e prestadores de serviços. Vale ressaltar que no caso de mudanças, materiais de obra e entregas comunicar a zeladoria para os devidos procedimentos de proteção.
+
+**Artigo 192º.** Por ser um equipamento de manutenção cara, ficará passível de multa pecuniária o condômino que for flagrado: a) Fumando, b) Depredando, c) Brincando, d) Retendo o elevador por tempo superior ao utilizado para embarque e desembarque. e) Riscando-o com lápis, canetas, etc...
+
+**Artigo 193º.** Por questão de segurança é proibida a utilização dos elevadores por crianças menores de 10 (dez anos) desacompanhadas.
+
+**Artigo 194º.** uso dos elevadores Residenciais será reservado aos condôminos do Setor Residencial e seus visitantes, sendo proibido seu uso pelos demais setores.
+
+**Artigo 195º.** Não será permitido o trânsito de pessoal com trajes de banho ou sem camisa nos elevadores.
+
+## 22º. CAPÍTULO - DOS JARDINS
+
+**Artigo 196º.** É proibido pisar ou brincar nas partes que compõem o jardim, bem como nele intervir, adicionando ou removendo plantas ou mudando - lhes o arranjo.
+
+**Artigo 197º.** Deve-se ter extremo cuidado no contato com os jardins procurando sempre preservá-los. Os eventuais danos causados ao mesmo serão cobrados do condômino, independentemente da aplicação e cobrança de multa pecuniária de caráter disciplinar.
+
+**Artigo 198º.** É proibido utilizar as torneiras do jardim para outra finalidade que não seja a de promover a rega das plantas ou a lavagem das áreas circunvizinhas.
+
+**Artigo 199º.** As árvores objeto de aplicação do Termo de Compromisso Ambiental (TCA) firmado com a Secretaria do Verde e do Meio Ambiente (SVMA) e Quota Ambiental de responsabilidade do Setor Residencial, Setor Serviço de Moradia e Setor Comercial, conforme indicadas na planta baixa nº 02/05 do projeto aprovado, terão a manutenção permanente de acordo com a responsabilidade de cada Setor, neste elencado, nos termos da Lei n° 16.402/2016 e decreto n° 57.565/2016, devendo ser apresentado relatório à Secretaria Municipal do Verde e do Meio Ambiente – SVMA, demonstrando atendimento de acordo com o projeto aprovado a cada 2 (dois) anos.
+
+## 23º. CAPÍTULO - DAS ÁREAS DE CIRCULAÇÃO COMUNS
+
+**Artigo 200º.** Não é permitida nas áreas comuns prática de jogos infantis, empinar pipas, jogos com bola ou a circulação em velocípedes, bicicletas, skates, patins, patinetes, carrinho elétricos e afins. Igualmente, é vedado promover leilões, exposições, bazares ou eventos assemelhados nas áreas de uso comum pois existem permissões para diversos itens em áreas de lazer especificas e salões).
+
+## 24º. CAPÍTULO - DO SILÊNCIO DO CONDOMINIO
+
+**Artigo 201º.** Os horários de utilização estão definidos nas sessões especificas relativas as áreas de utilização neste regulamento.
+
+**Artigo 202º.** É proibido utilizar com volume perturbador nas unidades vizinhas, alto falante, rádio, aparelho de televisão ou quaisquer outros instrumentos musicais ou de ruído previsto no art. 1277 do Código Civil).
+
+**Artigo 203º.** No horário compreendido entre 22h00min e 8h00min será observado o silêncio indispensável ao repouso dos demais moradores ou ocupantes das demais unidades.
+
+**Artigo 204º.** É expressamente proibido aos condôminos, usuários autorizados, moradores e locatários:
+
+**(a)** Exercer atividades ou manter nas respectivas unidades autônomas, instalações, materiais, aparelhos, etc., que por qualquer forma possam ameaçar ou afetar a segurança e solidez do Condomínio, prejudicar a saúde, causar incômodo aos demais moradores ou ainda, acarretar aumento de seguro.
+
+**(b)** O uso de rádios transmissores e receptores ou de quaisquer outros equipamentos de comunicação, assim como é vedada a utilização de quaisquer aparelhos elétricos ou eletrônicos que causem interferência nos demais equipamentos do Condomínio, ou das demais unidades autônomas.
+
+**(c)** Promover reuniões ou festividades que venham a perturbar a tranquilidade dos demais moradores, ou exercer atividades ruidosas, ilícitas ou imorais nas unidades autônomas e demais áreas comuns.
+
+**(d)** Utilizar com volume excessivo nas unidades autônomas ou nas áreas comuns do Condomínio, aparelhos sonoros, vídeos sonoros, instrumentos musicais, alto-falantes, bem como máquinas ou equipamentos de qualquer espécie que provoquem ruídos de alta intensidade.
+
+**(e)** Utilizar as respectivas unidades autônomas ou permitir que as mesmas sejam utilizadas para atividades ruidosas ou por pessoas de maus costumes, ou para instalação de qualquer atividade ou depósito de qualquer objeto capaz de causar dano ao prédio ou perturbar a tranquilidade dos demais condôminos.
+
+## 25º. CAPÍTULO - DAS CRIANÇAS E SEU COMPORTAMENTO
+
+**Artigo 205º.** Os pais têm OBRIGAÇÃO, perante o condomínio, de orientar suas crianças a não perturbar, em hipótese alguma, o sossego dos demais moradores e respeitar e acatar as determinações dos funcionários.
+
+**Artigo 206º.** Os pais têm OBRIGAÇÃO de, em caso de solicitação feita por funcionário ou membro da administração, recolher à unidade a criança que estiver promovendo desordem, bem como, ressarcir o condomínio de eventuais danos causados por ela.
+
+**Artigo 207º.** Recomenda-se que as crianças menores de 8 anos tenham a companhia do pai ou responsável acima de 16 anos nas áreas comuns,atentando para as regras de locais específicos.
+
+**Artigo 208º.** O Condomínio não se responsabiliza por quaisquer acidentes com crianças ou adolescentes, cabendo a cada pai ou responsável zelar por seus filhos e familiares, exceto nos itens que tenha dado causa.
+
+## 26º. CAPÍTULO - DA GARAGEM
+
+**Artigo 209º.** A garagem destina-se especificamente a guarda de veículos motorizados sendo automóveis e motocicletas e é de uso exclusivo dos condôminos. É proibido deixar o veículo ligado nas dependências da garagem que não seja para o deslocamento de entrada e saída, devendo o uso obrigatório do crachá de identificação permanecendo sempre visível no veículo.
+
+**§1º:** É terminantemente proibida a entrada de pedestres pelo portão de veículos, exceto a casos em que a entrada para pedestres esteja impossibilitada por reformas, por exemplo, e desde que conste avisos para utilização pelo portão de veículos.
+
+**§2º:** Somente será permitido o estacionamento de um veículo por vaga, tanto para carros ou motos, sempre respeitando o espaço delimitado para as vagas da unidade do condômino, sendo proibido colocação de suportes com perfuração nas paredes, vigas, teto ou piso.
+
+**§3º:** Qualquer dano causado por um veículo, morador ou prestador de serviço a outro veículo, será de inteira e exclusiva responsabilidade do proprietário do veículo causador do dano, devendo este último ressarcir o prejuízo causado em entendimento direto com o prejudicado.
+
+**§4º:** É obrigatória a comunicação à administração das placas dos automóveis e motocicletas a serem guardados no interior das garagens, visando facilitar a identificação e comunicação pela administração de irregularidades que porventura estiverem praticando ou prevenir danos. Em caso de furto, roubo e/ou venda de automóvel/motocicletas, o condômino ficará obrigado a comunicar e/ou requerer a baixa do veículo cadastrado junto a administração.
+
+**Artigo 210º.** Na hipótese de o morador estar sem o seu controle de acesso, o mesmo deverá dirigir-se a portaria para identificar-se e solicitar a abertura do portão tanto para a entrada quanto para a saída.
+
+**Artigo 211º.** O condômino que não utilizar sua vaga poderá destinar para seus visitantes, desde que avise a portaria e mediante cadastro prévio do veículo e condutor, deverá ser obedecido o seguinte procedimento.
+
+**§1º:** O morador deverá descer e entregar o seu crachá e o controle de acesso para o visitante que, por sua vez, deverá manter o crachá visível no automóvel e estacionar na vaga pré-determinada do morador.
+
+**§2º:** Na saída, o morador deverá acompanhar o visitante para resgatar o seu crachá assim como o controle de acesso liberando assim a saída do visitante junto a portaria.
+
+**§3º:** Não é permitida a venda, locação ou cessão de vagas para pessoas não residentes no condomínio.
+
+**Artigo 212º.** É vedada a utilização indevida das vagas destinadas ao uso de portadores de necessidades especiais.
+
+**Artigo 213º.** É dever de todos os condôminos respeitar o mapa de vagas realizado por sorteio em assembleia específica para este fim. A não observância deste artigo é passível de multa, no valor correspondente de uma a cinco vezes o valor da contribuição mensal de custeio do condomínio de sua unidade.
+
+**Artigo 214º.** É expressamente proibida a permanência de menores na área da garagem, exceto para entrar e sair do veículo.
+
+**Artigo 215º.** Os responsáveis por vazamento de óleo deverão providenciar a limpeza do local no prazo estipulado pelo Síndico sob pena de multa.
+
+**Artigo 216º.** Em nenhuma hipótese será tolerada a organização de jogos e brincadeiras nas áreas da garagem, bem como uso de bicicleta, skate, patins ou semelhantes.
+
+**Artigo 217º.** É expressamente proibida a lavagem de carros através de mangueiras no interior da garagem, bem como não é permitida a execução de qualquer reparo ou conserto nos veículos nela estacionados, a não ser aqueles necessário para remoção dos mesmos, sendo que neste caso, e em nenhuma hipótese o condômino poderá deixar o local sujo com lixo de qualquer tipo, principalmente óleo.
+
+**Artigo 218º.** Por motivos de segurança é proibido fumar, acender fósforos ou isqueiros nos espaços reservados à guarda de veículos.
+
+**Artigo 219º.** É vedado guardar produtos explosivos ou inflamáveis nos veículos, durante a permanência, salvo os combustíveis nos tanques.
+
+**Artigo 220º.** Não será admitido o uso da vaga para depósito de móveis ou objetos de qualquer natureza.
+
+**§1º:** O condômino que não observar o disposto no caput deverá providenciar a retirada dos objetos assim que comunicado, sob pena de aplicação de advertência e multa.
+
+**§2º:** Não observando o condômino o prazo estipulado no parágrafo 1º, o condomínio providenciar a retirada dos objetos, cobrando do condômino os valores referentes à retirada e eventual depósito. A não observância deste artigo é passível de multa.
+
+**Artigo 221º.** Os veículos devem circular nas áreas da garagem na velocidade máxima de 10km/h e é obrigatório o uso dos faróis baixos.
+
+**Artigo 222º.** É expressamente proibido estacionar o veículo fora das delimitações da vaga própria, de forma a obstruir as vagas vizinhas ou a pista de manobra e circulação, respeitando sempre o tamanho da vaga e seus limites estabelecidos pela construtora. A não observância deste artigo é passível de multa.
+
+**Artigo 223º.** O condomínio não se responsabiliza por valores e objetos deixados no interior dos veículos bem como por danos morais ocorridos nas dependências da área da garagem ou qualquer outra área do condomínio.
+
+**Artigo 224º.** É terminantemente proibida a manobra de veículos por menores de 18 (dezoito anos) ou por pessoas que não sejam devidamente habilitadas, mesmo que acompanhados dos pais ou responsáveis.
+
+**Artigo 225º.** Serão utilizados carrinhos (tipo supermercado) para transportes de compras, que após o uso deverão ser conduzidos para a garagem. O elevador a ser utilizado para este fim é o de serviço ou o híbrido.
+
+**Artigo 226º.** Fica terminantemente proibido o estacionamento de automóveis de prestadores de serviço nas dependências da garagem, sendo o morador destinatário do serviço e o responsável pela infração.
+
+**Artigo 227º.** Somente será disponibilizado a vaga do condômino para o uso de carga e descarga desde que o veículo esteja devidamente identificado na portaria e acompanhado sempre pelo morador. Qualquer dano causado por um veículo a outro será de inteira e exclusiva responsabilidade do condômino.
+
+**Artigo 228º.** É terminantemente proibido fumar (cigarros/cigarrilhas de palha, e outros assemelhados) conforme Lei antifumo 12.546/2011.
+
+## 27º. CAPÍTULO - DA SEGURANÇA DO CONDOMINIO
+
+**Artigo 229º.** É proibido manter em sua unidade ou nas áreas comuns substância ou artefato que possa vir causar perigo ao condomínio no caso de acidente. Ex.: Botijões de gás.
+
+**Artigo 230º.** É proibido colocar no guarda corpo ou beirais das janelas qualquer tipo de objeto. Ex. Vasos ornamentais, tapetes, edredom etc.
+
+**Artigo 231º.** Os condôminos deverão respeitar as orientações constantes no Manual do Proprietário entregue pela construtora do edifício.
+
+**Artigo 232º.** O condomínio não se responsabilizará, em hipótese alguma, por furto simples ou qualificado, total ou parcial, roubo, danos ou estragos de qualquer natureza, acidentes e problemas ocorridos nos veículos, às pessoas ou bens de qualquer espécie que estejam dentro do edifício ou áreas comuns, de que sejam vítimas os condôminos, locatários, ocupantes, empregados, visitantes e demais pessoas em quaisquer circunstâncias ou ocasiões. O condomínio só responderá por atos ocasionados por ele e seus prepostos, desde que, devidamente comprovados.
+
+## 28º. CAPÍTULO - DA PADRONIZAÇÃO DE PORTAS, JANELAS, HALL DOS ELEVADORES, SACADA E OUTROS
+
+**Artigo 233º.** As definições das janelas, sacadas e área de serviço com relação as especificações, envidraçamento, etc. segue padrão definido em Assembleia.
+
+**Artigo 234º.** As portas de entrada das unidades autônomas do mesmo hall deverão sempre ser iguais, de modo a manter uma uniformidade estética. Assuntos inerentes a segurança, como instalação de fechadura, maçaneta, olho mágico etc, não são objetos de padronização podend o ser realizado a troca pela unidade. Desde que mantenha o puxador padrão ou eletrônica. O olho mágico digital é permitido, desde que não armazene as imagens.
+
+**Artigo 235º.** As Deliberações sobre os padrões da sacada em relação ao envidraçamento, cor da tela solar, tela de proteção, remoção da esquadria de acesso bem como remoção de parede, eliminação ou fechamento da janela, decoração, iluminação é definida em Assembleia, bem como as deliberações dos padrões de fechamento da área de serviço.
+
+**Artigo 236º.** Serão proibidas a instalação de placas ou anúncios nas janelas, sacadas, fachadas ou quaisquer outras áreas externas. Artigo 237º. Fica proibido nas áreas comuns total ou parcialmente fechadas em qualquer dos seus lados por parede, divisória, teto ou telhado, ainda que provisórios, onde haja permanência ou circulação de pessoas, o consumo de cigarros, cigarrilhas, charutos, narguilé ou de qualquer outro produto fumigeno, derivado ou não do tabaco.
+
+**Parágrafo Único:** Caso por qualquer motivo o condomínio seja multado, na pessoa do Síndico, o valor da multa será repassado ao condômino que infringiu a regra, ou, caso não seja possível identificar o infrator, ao condomínio, ou seja, o Síndico não será pessoalmente responsável pelo pagamento da multa.
+
+**Artigo 238º.** Os proprietários deverão comunicar previamente ao condomínio, na pessoa do Síndico, sobre obras que serão efetuadas nas unidades autônomas. Os proprietários se obrigam a fornecer ao Síndico, antes do início da obra, declaração assinada por engenheiro ou responsável técnico na qual conste que a referida obra não altera e/ou afeta a estrutura e as instalações, inclusive elétricas e hidráulicas, da edificação, e que a obra está de acordo com toda a legislação municipal. A declaração deverá ser acompanhada de ART, devidamente recolhida pelo profissional responsável. Ficam ainda os condôminos que forem efetuar reformas nos apartamentos a cumprir integralmente a NBR 16280/2014 da ABNT – Reformas em edificações – Sistema de gestão de reformas – Requisitos, inclusive, mas não somente a apresentar o PLANO DE REFORMAS previsto na Norma.
+
+**Artigo 239º.** A instalação de redes de segurança nas sacadas, varandas e janelas deverá obedecer ao seguinte padrão: Cor: presta – Lado da Instalação: lado externo do guarda-corpo/peitoral ou da janela.
+
+**Artigo 240º.** Consoante ao disposto no parágrafo anterior e de sorte a manter uma unicidade estética e harmoniosa da fachada do Edifício, é permitido o uso de persiana do tipo blackout na cor Branca.
+
+## 29º. CAPITULO - DAS PENALIDADES
+
+**Artigo 241º.** Aquele que violar as disposições legais, contidas neste Regulamento, ficará, sujeito, a critério do síndico, a advertência ou multa cujo o valor será de 50% do valor do salário mínimo ordinário vigente no mês da infração, por disposição violada, o dobro em caso de reincidência, além de ser compelido a desfazer a obra ou abster-se do ato praticado, ou ainda, a reparar os danos causados. A multa será cobrada através de boleto bancário ou outro meio definido pela administração, vencendo a mesma no mês subsequente à data de infração.
+
+Parágrafo primeiro: O pagamento da multa não exime o infrator de sua responsabilidade civil e criminal pelos danos causados, bem como do reparo dos estragos causados.
+
+Parágrafo segundo: Das multas lavradas bem como da advertência, caberá recurso do condômino infrator, num prazo de 15 (quinze) dias a contar do recebimento do auto de infração e dirigido ao Conselho, que terá também o prazo de 15 (quinze) dias para se manifestar a respeito do recurso.
+
+## 30º. CAPÍTULO - DAS DISPOSIÇÕES GERAIS E TRANSITÓRIAS
+
+**Artigo 242º.** Todos os condôminos ficam autorizado a tomar as providências cabíveis para fazer cumprir o presente regulamento, devendo comunicar as infrações ao Síndico ou Subsíndico, para que os mesmos tomem as providências necessárias.
+
+**Artigo 243º.** A solução dos casos omissos caberá ao Corpo Diretivo “Ad referendum” da Assembleia Geral.
+
+**Artigo 244º.** Em função das necessidades do condomínio, a adequação ou alteração dos dispositivos deste Regulamento, a elaboração de Regulamentos Complementares pertinentes a outras áreas comuns, serão efetuadas pelo Corpo Diretivo, e farão parte integrante, para todos os efeitos, deste Regulamento, entrando em vigor a partir da comunicação aos condôminos, devendo ser ratificados na 1a Assembleia Geral que se realizar.
+
+**Artigo 245º.** Questões internas das unidades envolvendo garantia das mesmas deverão ser tratadas diretamente pelos proprietários das mesmas junto ao SAC (serviço de atendimento ao cliente) da Construtora.
+
+**Artigo 246º.** Em todas as áreas comuns haverá comunicados relacionados aos protocolos sanitários e que deverão ser respeitados por todos os condomínios. A não observância acarretará multa.
+
+**Artigo 247º.** Este Regulamento poderá ser alterado em Assembleia Geral com os votos correspondentes a metade mais um dos condôminos que estiverem presentes na Assembleia.
+
+DATA: xx/09/2024
