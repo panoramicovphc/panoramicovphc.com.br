@@ -367,3 +367,143 @@ perfeitamente. Deverá ser utilizado o elevador de serviço ou conforme definido
 **Artigo 146º.** É permitido o acesso de profissional no Espaço desde que, acompanhado de um morador responsável.
 
 **Artigo 147º.** Caberá ao Corpo Diretivo definir se haverá ou não cobrança de taxa de utilização do local. E em caso positivo definir o seu valor.
+
+## 16º. CAPÍTULO - DO BICICLETÁRIO19
+
+**Artigo 148º.** O bicicletário é um espaço destinado ao armazenamento de bicicletas de uso adulto e infantil, para uso exclusivo dos moradores, não existindo vagas reservas ou demarcadas de uso privativo;
+
+**§1º:** Para utilização do bicicletário, os moradores deverão cadastrar a sua bicicleta junto à administração do Condomínio, sendo expressamente vedado seu uso a quem não cumprir com o disposto neste parágrafo;
+
+**§2º:** As bicicletas deverão estar em perfeito estado de uso, devidamente identificadas com nome e número do apartamento e nome do proprietário;
+
+**§3º;** Não é permitido guardar, dentro do bicicletário, bicicletas com aro menor do que 16, patins, patinetes, skates, carrinhos motorizados, peças, pneus, enfim, qualquer outro objeto ou utensílio que não seja bicicleta.
+
+**§4º:** O espaço deverá permanecer limpo e com as luzes desligadas.
+
+**Artigo 149º.** Crianças menores de 12 (doze) anos deverão estar acompanhadas e supervisionados por seus responsáveis para pegar ou guardar sua bicicleta.
+
+**Artigo 150º.** Cada apartamento terá direito a guardar até 02 bicicletas por unidades, limitando-se ao espaço disponível. Se o espaço destinado às bicicletas for completado e eventual Condômino tiver mais de 2 (duas) bicicletas sob sua guarda naquele local, a terceira bicicleta deverá obrigatoriamente ser removida. Se todas as vagas de bicicleta forem utilizadas, respeitando-se as regras e ainda sim existir demanda por mais vagas de bicicleta, será convocada uma assembleia para deliberar sobre o bicicletário.
+
+**Artigo 151º.** Para garantir a segurança, os proprietários das bicicletas deverão trancá-las com cadeado, correntes ou travas de segurança; após o cadastramento da bicicleta junto à administração.
+
+**§1º:** O morador deverá guardar as bicicletas com zelo, tendo cuidado e atenção com as demais bicicletas.
+
+**§2º:** O condomínio não se responsabiliza por roubo, furto ou dano de peças e bicicletas guardadas dentro do bicicletário;
+
+**§3º:** Em nenhuma hipótese os funcionários do condomínio guardarão bicicletas dos moradores.
+
+**§4º:** Não poderão ser realizados reparos no bicicletário.
+
+**§5º:** Por motivo de segurança, não será permitida a guarda de bicicletas com motor ou qualquer outro que funcione movido a combustível.
+
+**Artigo 152º.** Não há obrigatoriedade do Condomínio em fornecer local e/ou espaço suficiente para todas as bicicletas existentes no condomínio.
+
+**Artigo 153º.** É terminantemente proibido fumar (cigarros/cigarrilhas de palha, cigarros eletrônicos, narguilé e outros assemelhados) conforme Lei antifumo 12.546/201120.
+
+## 17º. CAPÍTULO - DA SAUNA
+
+**Artigo 154º.** A sauna destina-se a uso exclusivo dos moradores e seus respectivos familiares residentes em suas unidades autônomas.
+
+**§1º:** Idade mínima para uso é de 18 anos (abaixo desta somente acompanhado do responsável e sob sua responsabilidade).
+
+**Artigo 155º.** O horário de funcionamento será das 08:00 às 22:00 horas e a utilização será mista e sob agendamento no aplicativo, com uso restrito a uma unidade por vez e tempo máximo de 1h. O agendamento é limitado a uma vez por dia. O condomínio poderá estabelecer horários de manutenção regular / limpeza da área, com o uso proibido durante este período.
+
+**§1º:** A sauna será ligada somente após solicitação, com quinze minutos de antecedência, do interessado em utilizá-la.
+
+**Artigo 156º.** Qualquer dano causado aos equipamentos dos espaços deverá ser reparado imediatamente pelo condômino.
+
+**Artigo 157º.** É expressamente proibido fumar, consumir bebidas ou refeições, barbear-se ou depilar-se, no recinto dos espaços.
+
+**Artigo 158º.** Compete ao Síndico vetar, ouvido o Conselho Consultivo, a entrada de qualquer pessoa que, comprovadamente, destine ao local uso não adequado a seus fins, comporte-se ou use trajes incompatíveis com o decoro e a mora.
+
+**Artigo 159º.** É proibido o ingresso no recinto dos espaços de frequentador que apresentar afecção de pele, assim como outra moléstia contagiosa. Os condôminos que se encontrarem em tal situação, apenas poderão utilizar-se da sauna após a exibição de atestado médico.
+
+**Artigo 160º.** Recairá ao condômino toda e qualquer responsabilidade, resultante da má utilização e por danos materiais causados ao Condomínio ou suas instalações, bem como aos demais condôminos.
+
+**§1º:** Fica entendido como má utilização dos espaços, entre outros, de não desligar os aparelhos após sua utilização, se após a sua saída, não restar ninguém nos seus interiores.
+
+**§2º:** O Condomínio não se responsabiliza por problemas cardíacos e de hipertensão dos usuários.
+
+**§3º:** Os frequentadores da sauna deverão se utilizar das escadas e dos elevadores de serviço.
+
+**Artigo 161º.** É terminantemente proibido fumar (cigarros/cigarrilhas de palha, cigarros eletrônicos, narguilé e outros assemelhados) conforme Lei antifumo 12.546/201121.
+
+18º. CAPÍTULO - DO FITNESS
+
+**Artigo 162º.** Horário de funcionamento das 05:00 às 24:00 horas respeitando a Lei do Silêncio.
+
+**Artigo 163º.** Idade mínima para uso é de 18 anos. Abaixo desta idade somente acompanhado pelo responsável ou profissional qualificado e, sob sua responsabilidade.
+
+**Artigo 164º.** Leia com atenção os quadros de informações fixados na sala.
+
+**Artigo 165º.** Utilize os equipamentos com cuidado e zelo pois eles são de uso comum a todos os condôminos.
+
+**Artigo 166º.** Após os exercícios, obrigatório limpar os equipamentos.
+
+**Artigo 167º.** Após o uso, guardar todos os equipamentos no local apropriado.
+
+**Artigo 168º.** O uso dos equipamentos é restrito à sala de ginástica, não podendo
+em hipótese nenhuma, serem retirados da mesma.
+
+**Artigo 169º.** Obrigatório uso de traje apropriado sendo proibido o treino sem
+camiseta.
+
+**Artigo 170º.** Anotar horário do início de uso no quadro próprio (ou outra forma disponibilizada pelo condomínio) lembrando que, o tempo máximo de utilização para step, esteiras e bicicletas é de 60 minutos, salvo se não existir nenhum outro morador desejando utilizar o aparelho.
+
+**Artigo 171º.** Comunicar imediatamente o zelador, quaisquer avarias ou dano causado aos equipamentos.
+
+**Artigo 172º.** O uso da sala de ginástica é restrito aos moradores. Para os profissionais de educação física (personal trainer, fisioterapeuta,) o uso é somente para instrução desde que devidamente cadastrados. Artigo 173º. O som da academia através de celular, TV, é permitido desde que utilizados com o bom senso e comum acordo entre os usuários. Devido ao horário estendido, respeitar a lei do silencio.
+
+**Artigo 174º.** O uso da estação de musculação e demais exercícios com pesos deverão ser feito, quando for necessário, em regime de revezamento.
+
+**Artigo 175º.** O condomínio não se responsabilizará por quaisquer objetos deixados ou esquecidos na sala de ginástica.
+
+**Artigo 176º.** Não será permitido o uso da sala em traje de banho assim como entrar molhado seja vindo da piscina ou da sauna.
+
+**Artigo 177º.** O condomínio se isenta de qualquer responsabilidade sobre acidentes (os equipamentos passarão por manutenção periódica) ou problemas de saúde que venham a ocorrer na prática do exercício. Aconselhamos fazer avaliação física junto a um médico antes de iniciar seu treinamento.
+
+## 19º. CAPÍTULO - DA QUADRA
+
+**Artigo 178º.** A quadra destina-se ao uso exclusivo dos condôminos podendo ser utilizada por convidados dos condôminos, limitados a 3 ( tres) pessoas por unidade, desde que devidamente acompanhados.
+
+**Artigo 179º.** O horário de utilização da quadra será de segunda a sexta das 08:00 horas as 22:00 horas; Sábados/Domingos/Feriados das 09:00 horas as 22:00 horas.
+
+**§1:** ºO tempo de cada atividade por determinado grupo de moradores não poderá ser superior a 60 minutos, visando a sua utilização por outros condôminos, salvo quando não houver outros moradores que queiram utilizá-la.
+
+**§2º:** O Condomínio não se responsabiliza por perdas, extravios ou danos de objetospessoais ocorridos no local, ou por eventuais acidentes ocorridos com os usuários durante os jogos.
+
+**§3º:** Não serão permitidos trajes inadequados nem brincadeiras que
+possam danificar as instalações e que incomodem os demais moradores. Cabe aos usuários zelarem pela conservação dos acessórios e do espaço todo O funcionário do Condomínio está autorizado a coibir abusos e a qualquer momento interromper o uso inadequado.
+
+**§4º:** Qualquer dano as instalações existentes, o custo decorrente de
+reparos será de responsabilidade do condômino.
+
+**§5º:** Não é permitido o uso ou porte de garrafas, copos ou de quaisquer outros utensílios de vidro, bem como qualquer tipo de alimento nas dependências da quadra.
+
+**Artigo 180º.** Os últimos usuários que utilizarem a quadra em horário noturno deverão solicitar o desligamento da iluminação e fechamento do espaço.
+
+**Artigo 181º.** O controle de uso da quadra será exercido pelo Condomínio. Quando não estiver sendo usada, a quadra permanecerá fechada.
+
+**Artigo 182º.** Os casos omissos neste regulamento serão analisados e julgados pelo corpo diretivo do Edifício, que poderá a qualquer momento baixar normas emergenciais complementares aos presentes visando o bem estar de todos os moradores, com posterior ratificação da Assembleia Geral.
+
+**Artigo 183º.** Será de responsabilidade do Morador, por si e por seus prepostos, e da Administração Condominial cumprir e fazerem cumprir os direitos e deveres previstos neste Regulamento Interno, bem como na Convenção e Normas Internas.
+
+**Artigo 184º.** É terminantemente proibido fumar (cigarros/cigarrilhas de palha, cigarros eletrônicos, narguilé e outros assemelhados) conforme Lei antifumo 12.546/201123.
+
+## 20º. CAPÍTULO XVI - DO PLAY-GROUND
+
+**Artigo 185º.** O playground é de uso dos moradores do condomínio, destinado a recreação infantil e sua utilização é permitida por crianças de até 12 (doze) anos de idade. Os menores de 7 (sete) anos deverão estar sempre acompanhados de seus pais ou responsáveis. Fica permitido a utilização por até 01 convidado por apartamento, desde que acompanhado do morador.
+
+**Artigo 186º.** O horário de funcionamento do playground é das 08:00 horas às 22:00 horas. O uso do espaço poderá ser vedado quando causar barulho nocivo ao sossego e repouso dos moradores.
+
+**§1º:** O Condomínio não se responsabiliza por perdas, extravios ou danos de objetospessoais ocorridos no local, ou por eventuais acidentes ocorridos com os usuários durante sua utilização.
+
+**§2º:** Não serão permitidos trajes de banho nem brincadeiras que possam danificar as instalações e que incomodem os demais moradores. Cabe aos usuários zelar pela conservação dos acessórios e do espaço todo. O funcionário do Condomínio está autorizado a coibir abusos e a qualquer momento interromper o uso inadequado.
+
+**§3º:** Qualquer dano as instalações existentes, o custo decorrente de reparos será de responsabilidade do condômino.
+
+**Artigo 187º.** É proibida a utilização de qualquer brinquedo perigoso ou perturbador da boa ordem e sossego dos demais moradores.
+
+**Artigo 188º.** Quaisquer defeitos nos brinquedos devem ser comunicados imediatamente ao zelador do condomínio.
+
+**Artigo 189º.** É terminantemente proibido fumar (cigarros/cigarrilhas de palha, cigarros eletrônicos, narguilé e outros assemelhados) conforme Lei antifumo 12.546/2011.
