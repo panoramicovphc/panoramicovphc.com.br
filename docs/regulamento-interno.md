@@ -73,7 +73,7 @@ Este Regulamento Interno tem como finalidade disciplinar a conduta e o comportam
 
 **d)** É obrigatório que qualquer animal esteja vacinado, conforme as exigências legais e normativas.
 
-**e)** O proprietário do animal é o responsável pela condução e comportamento dele, respondendo por eventuais danos causados ao patrimônio do condomínio ou a pessoas. (Lei nº 11.531/2003).
+**e)** O proprietário do animal é o responsável pela condução e comportamento dele, respondendo por eventuais danos causados ao patrimônio do condomínio ou a pessoas. ([Lei nº 11.531/2003](#lei-11531)).
 
 **f)** Em nenhum caso será permitida a permanência de animais em qualquer área comum.
 
@@ -149,13 +149,13 @@ Este Regulamento Interno tem como finalidade disciplinar a conduta e o comportam
 
 **Art. 44.** O Termo de Obras deverá ser entregue junto com os projetos, plantas, desenhos, estudos de carga e qualquer outro documento necessário, devendo ser entregue com antecedência mínima de 03 (três) dias úteis contados da data que se pretende iniciar as obras.
 
-**Art. 45.** As obras deverão estar nos termos da NBR 16280 da ABNT e só será permitido o seu início após: a) a entrega de laudo especificando o conteúdo da obra, do cronograma de execução assinado por profissional técnico capacitado e acompanhada da devida ART (Anotação de Responsabilidade Técnica).
+**Art. 45.** As obras deverão estar nos termos da [NBR 16280 da ABNT](#nbr-16280) e só será permitido o seu início após: a) a entrega de laudo especificando o conteúdo da obra, do cronograma de execução assinado por profissional técnico capacitado e acompanhada da devida ART (Anotação de Responsabilidade Técnica).
 
 **Art. 46.** Caso o condomínio constate que as obras colocarão em risco a edificação, alterem as áreas comuns e afetem os direitos dos demais condôminos, este não autorizará o início da realização das obras e deverá comunicar ao condômino de forma fundamentada.
 
 **Art. 47.** Se ocorrer a recusa da obra por parte do condomínio, o condômino poderá apresentar recurso que será julgado na assembleia geral devidamente convocada para este fim.
 
-**Art. 48.** As normas e condições previstas na NBR 16280 da ABNT passam a ser obrigatórias e deverão ser estritamente cumpridas e observadas, por condôminos e pelo Condomínio, para qualquer intervenção a ser feita nas dependências do Condomínio, tanto nas áreas comuns quanto nas privativas.
+**Art. 48.** As normas e condições previstas na [NBR 16280 da ABNT](#nbr-16280) passam a ser obrigatórias e deverão ser estritamente cumpridas e observadas, por condôminos e pelo Condomínio, para qualquer intervenção a ser feita nas dependências do Condomínio, tanto nas áreas comuns quanto nas privativas.
 
 **Art. 49.** O condômino, em cujo apartamento for realizada obra, será o responsável pela perfeita limpeza do elevador de serviço, áreas dos corredores e outros locais de uso comum, não podendo ser depositado em tais áreas quaisquer objetos e entulhos.
 
@@ -197,7 +197,7 @@ Este Regulamento Interno tem como finalidade disciplinar a conduta e o comportam
 
 **Art. 66.** Para adentrar nas dependências do Condomínio, o prestador de serviço e convidados, deverão apresentar na recepção sua identificação. Incluir item indicando que o morador tem que acompanhar o prestador da portaria até o apartamento (não frequente).
 
-**Art. 67.** Caberá à administração alocar as correspondências e mercadorias entregues na recepção, diariamente, nos locais distribuídos na sala de entregas localizada no térreo do edifício, para retirada pelo condômino, com exceção as de caráter judicial, que, de conformidade com o artigo 248, parágrafo 4º, do Código de Processo Civil vigente, será declarada válida sua entrega ao funcionário da recepção, que, entretanto, poderá recusar o recebimento, se declarar, por escrito, sob as penas da lei, que o destinatário da correspondência está ausente. No caso das correspondências que necessitam de assinatura no ato do recebimento, será acionado o destinatário, constatado sua ausência, deverá a correspondência ser registrada em livro próprio, para posterior retirada pelo condômino mediante protocolo.
+**Art. 67.** Caberá à administração alocar as correspondências e mercadorias entregues na recepção, diariamente, nos locais distribuídos na sala de entregas localizada no térreo do edifício, para retirada pelo condômino, com exceção as de caráter judicial, que, de conformidade com o [artigo 248, parágrafo 4º, do Código de Processo Civil vigente](#lei-13105), será declarada válida sua entrega ao funcionário da recepção, que, entretanto, poderá recusar o recebimento, se declarar, por escrito, sob as penas da lei, que o destinatário da correspondência está ausente. No caso das correspondências que necessitam de assinatura no ato do recebimento, será acionado o destinatário, constatado sua ausência, deverá a correspondência ser registrada em livro próprio, para posterior retirada pelo condômino mediante protocolo.
 
 ## 7. DO HALL SOCIAL
 
@@ -349,7 +349,7 @@ perfeitamente. Deverá ser utilizado o elevador de serviço ou conforme definido
 
 **Art. 132.** É permitido o consumo de alimentos e bebidas exceto garrafas, copos ou de quaisquer outros utensílios de vidro, bem como qualquer tipo de bebida alcoólica. Após a utilização do espaço, manter mesmo limpo e descartar o lixo em local apropriado.
 
-**Art. 133.** É terminantemente proibido fumar (cigarros/cigarrilhas de palha, cigarros eletrônicos e narguilé e outros assemelhados) conforme Lei Antifumo (Lei nº 12.546/2011).
+**Art. 133.** É terminantemente proibido fumar (cigarros/cigarrilhas de palha, cigarros eletrônicos e narguilé e outros assemelhados) conforme [Lei Antifumo (Lei nº 12.546/2011)](#lei-12546).
 
 ## 14. DA BRINQUEDOTECA
 
@@ -381,7 +381,7 @@ perfeitamente. Deverá ser utilizado o elevador de serviço ou conforme definido
 
 **§ 3º** Ao CONDÔMINO facultará solicitar ao CONDOMÍNIO que contrate os serviços de reparos, cujos custos serão cobrados diretamente do CONDÔMINO.
 
-**Art. 137.** É terminantemente proibido fumar (cigarros/cigarrilhas de palha, cigarros eletrônicos, narguilé e outros assemelhados) conforme Lei Antifumo (Lei nº 12.546/2011).
+**Art. 137.** É terminantemente proibido fumar (cigarros/cigarrilhas de palha, cigarros eletrônicos, narguilé e outros assemelhados) conforme [Lei Antifumo (Lei nº 12.546/2011)](#lei-12546).
 
 ## 15. DO ESPAÇO ADOLESCENTE
 
@@ -409,7 +409,7 @@ perfeitamente. Deverá ser utilizado o elevador de serviço ou conforme definido
 
 **§ 3º** Ao CONDÔMINO facultará solicitar ao CONDOMÍNIO que contrate os serviços de reparos, cujos custos serão cobrados diretamente do CONDÔMINO.
 
-**Art. 141.** É terminantemente proibido fumar (cigarros/cigarrilhas de palha, cigarros eletrônicos, narguilé e outros assemelhados) conforme Lei Antifumo (Lei nº 12.546/2011).
+**Art. 141.** É terminantemente proibido fumar (cigarros/cigarrilhas de palha, cigarros eletrônicos, narguilé e outros assemelhados) conforme [Lei Antifumo (Lei nº 12.546/2011)](#lei-12546).
 
 ## 16. DO ESPAÇO PILATES/YOGA
 
@@ -455,7 +455,7 @@ perfeitamente. Deverá ser utilizado o elevador de serviço ou conforme definido
 
 **Art. 152.** Não há obrigatoriedade do Condomínio em fornecer local e/ou espaço suficiente para todas as bicicletas existentes no condomínio.
 
-**Art. 153.** É terminantemente proibido fumar (cigarros/cigarrilhas de palha, cigarros eletrônicos, narguilé e outros assemelhados) conforme Lei Antifumo (Lei nº 12.546/2011).
+**Art. 153.** É terminantemente proibido fumar (cigarros/cigarrilhas de palha, cigarros eletrônicos, narguilé e outros assemelhados) conforme [Lei Antifumo (Lei nº 12.546/2011)](#lei-12546).
 
 ## 18. DA SAUNA
 
@@ -483,7 +483,7 @@ perfeitamente. Deverá ser utilizado o elevador de serviço ou conforme definido
 
 **§ 3º** Os frequentadores da sauna deverão se utilizar das escadas e dos elevadores de serviço.
 
-**Art. 161.** É terminantemente proibido fumar (cigarros/cigarrilhas de palha, cigarros eletrônicos, narguilé e outros assemelhados) conforme Lei Antifumo (Lei nº 12.546/2011).
+**Art. 161.** É terminantemente proibido fumar (cigarros/cigarrilhas de palha, cigarros eletrônicos, narguilé e outros assemelhados) conforme [Lei Antifumo (Lei nº 12.546/2011)](#lei-12546).
 
 ## 19. DO FITNESS
 
@@ -547,7 +547,7 @@ reparos será de responsabilidade do condômino.
 
 **Art. 183.** Será de responsabilidade do Morador, por si e por seus prepostos, e da Administração Condominial cumprir e fazerem cumprir os direitos e deveres previstos neste Regulamento Interno, bem como na Convenção e Normas Internas.
 
-**Art. 184.** É terminantemente proibido fumar (cigarros/cigarrilhas de palha, cigarros eletrônicos, narguilé e outros assemelhados) conforme Lei Antifumo (Lei nº 12.546/2011).
+**Art. 184.** É terminantemente proibido fumar (cigarros/cigarrilhas de palha, cigarros eletrônicos, narguilé e outros assemelhados) conforme [Lei Antifumo (Lei nº 12.546/2011)](#lei-12546).
 
 ## 21. DO PLAYGROUND
 
@@ -565,7 +565,7 @@ reparos será de responsabilidade do condômino.
 
 **Art. 188.** Quaisquer defeitos nos brinquedos devem ser comunicados imediatamente ao zelador do condomínio.
 
-**Art. 189.** É terminantemente proibido fumar (cigarros/cigarrilhas de palha, cigarros eletrônicos, narguilé e outros assemelhados) conforme Lei Antifumo (Lei nº 12.546/2011).
+**Art. 189.** É terminantemente proibido fumar (cigarros/cigarrilhas de palha, cigarros eletrônicos, narguilé e outros assemelhados) conforme [Lei Antifumo (Lei nº 12.546/2011)](#lei-12546).
 
 ## 22. DOS ELEVADORES
 
@@ -605,7 +605,7 @@ reparos será de responsabilidade do condômino.
 
 **Art. 198.** É proibido utilizar as torneiras do jardim para outra finalidade que não seja a de promover a rega das plantas ou a lavagem das áreas circunvizinhas.
 
-**Art. 199.** As árvores objeto de aplicação do Termo de Compromisso Ambiental (TCA) firmado com a Secretaria do Verde e do Meio Ambiente (SVMA) e Quota Ambiental de responsabilidade do Setor Residencial, Setor Serviço de Moradia e Setor Comercial, conforme indicadas na planta baixa nº 02/05 do projeto aprovado, terão a manutenção permanente de acordo com a responsabilidade de cada Setor, neste elencado, nos termos da Lei n° 16.402/2016 e decreto n° 57.565/2016, devendo ser apresentado relatório à Secretaria Municipal do Verde e do Meio Ambiente – SVMA, demonstrando atendimento de acordo com o projeto aprovado a cada 2 (dois) anos.
+**Art. 199.** As árvores objeto de aplicação do Termo de Compromisso Ambiental (TCA) firmado com a Secretaria do Verde e do Meio Ambiente (SVMA) e Quota Ambiental de responsabilidade do Setor Residencial, Setor Serviço de Moradia e Setor Comercial, conforme indicadas na planta baixa nº 02/05 do projeto aprovado, terão a manutenção permanente de acordo com a responsabilidade de cada Setor, neste elencado, nos termos da [Lei n° 16.402/2016](#lei-16402) e [decreto n° 57.565/2016](#decreto-57565), devendo ser apresentado relatório à Secretaria Municipal do Verde e do Meio Ambiente – SVMA, demonstrando atendimento de acordo com o projeto aprovado a cada 2 (dois) anos.
 
 ## 24. DAS ÁREAS DE CIRCULAÇÃO COMUNS
 
@@ -615,7 +615,7 @@ reparos será de responsabilidade do condômino.
 
 **Art. 201.** Os horários de utilização estão definidos nas sessões especificas relativas as áreas de utilização neste regulamento.
 
-**Art. 202.** É proibido utilizar com volume perturbador nas unidades vizinhas, alto falante, rádio, aparelho de televisão ou quaisquer outros instrumentos musicais ou de ruído previsto no art. 1277 do Código Civil).
+**Art. 202.** É proibido utilizar com volume perturbador nas unidades vizinhas, alto falante, rádio, aparelho de televisão ou quaisquer outros instrumentos musicais ou de ruído previsto no [art. 1277 do Código Civil](#lei-10406).
 
 **Art. 203.** No horário compreendido entre 22:00 e 08:00 será observado o silêncio indispensável ao repouso dos demais moradores ou ocupantes das demais unidades.
 
@@ -699,7 +699,7 @@ reparos será de responsabilidade do condômino.
 
 **Art. 227.** Somente será disponibilizado a vaga do condômino para o uso de carga e descarga desde que o veículo esteja devidamente identificado na portaria e acompanhado sempre pelo morador. Qualquer dano causado por um veículo a outro será de inteira e exclusiva responsabilidade do condômino.
 
-**Art. 228.** É terminantemente proibido fumar (cigarros/cigarrilhas de palha, e outros assemelhados) conforme Lei Antifumo (Lei nº 12.546/2011).
+**Art. 228.** É terminantemente proibido fumar (cigarros/cigarrilhas de palha, e outros assemelhados) conforme [Lei Antifumo (Lei nº 12.546/2011)](#lei-12546).
 
 ## 28. DA SEGURANÇA DO CONDOMÍNIO
 
@@ -725,7 +725,7 @@ reparos será de responsabilidade do condômino.
 
 **Parágrafo único.** Caso por qualquer motivo o condomínio seja multado, na pessoa do Síndico, o valor da multa será repassado ao condômino que infringiu a regra, ou, caso não seja possível identificar o infrator, ao condomínio, ou seja, o Síndico não será pessoalmente responsável pelo pagamento da multa.
 
-**Art. 238.** Os proprietários deverão comunicar previamente ao condomínio, na pessoa do Síndico, sobre obras que serão efetuadas nas unidades autônomas. Os proprietários se obrigam a fornecer ao Síndico, antes do início da obra, declaração assinada por engenheiro ou responsável técnico na qual conste que a referida obra não altera e/ou afeta a estrutura e as instalações, inclusive elétricas e hidráulicas, da edificação, e que a obra está de acordo com toda a legislação municipal. A declaração deverá ser acompanhada de ART, devidamente recolhida pelo profissional responsável. Ficam ainda os condôminos que forem efetuar reformas nos apartamentos a cumprir integralmente a NBR 16280/2014 da ABNT – Reformas em edificações – Sistema de gestão de reformas – Requisitos, inclusive, mas não somente a apresentar o PLANO DE REFORMAS previsto na Norma.
+**Art. 238.** Os proprietários deverão comunicar previamente ao condomínio, na pessoa do Síndico, sobre obras que serão efetuadas nas unidades autônomas. Os proprietários se obrigam a fornecer ao Síndico, antes do início da obra, declaração assinada por engenheiro ou responsável técnico na qual conste que a referida obra não altera e/ou afeta a estrutura e as instalações, inclusive elétricas e hidráulicas, da edificação, e que a obra está de acordo com toda a legislação municipal. A declaração deverá ser acompanhada de ART, devidamente recolhida pelo profissional responsável. Ficam ainda os condôminos que forem efetuar reformas nos apartamentos a cumprir integralmente a [NBR 16280/2014 da ABNT](#nbr-16280) – Reformas em edificações – Sistema de gestão de reformas – Requisitos, inclusive, mas não somente a apresentar o PLANO DE REFORMAS previsto na Norma.
 
 **Art. 239.** A instalação de redes de segurança nas sacadas, varandas e janelas deverá obedecer ao seguinte padrão: Cor: presta – Lado da Instalação: lado externo do guarda-corpo/peitoral ou da janela.
 
@@ -755,17 +755,31 @@ reparos será de responsabilidade do condômino.
 
 ## 32. REFERÊNCIAS
 
+### NBR 16280
+
 ASSOCIAÇÃO BRASILEIRA DE NORMAS TÉCNICAS. **NBR 16280**: Reforma em edificações — Sistema de gestão de reformas — Requisitos. Rio de Janeiro, 2014.
+
+### Lei 10406
 
 BRASIL. **Lei nº 10.406, de 10 de janeiro de 2002**. Institui o Código Civil. Diário Oficial da União: seção 1, Brasília, DF, ano 139, n. 8, p. 1-74, 11 jan. 2002.
 
+### Lei 11531
+
 BRASIL. **Lei nº 11.531, de 11 de novembro de 2003**. Dispõe sobre a condução de cães das raças que especifica e dá outras providências. Diário Oficial do Estado de São Paulo: São Paulo, SP, 12 nov. 2003.
+
+### Lei 12546
 
 BRASIL. **Lei nº 12.546, de 14 de dezembro de 2011**. Altera a Lei nº 9.294, de 15 de julho de 1996, para proibir o uso de produtos fumígenos em recintos coletivos fechados. Diário Oficial da União: seção 1, Brasília, DF, 15 dez. 2011.
 
+### Lei 13105
+
 BRASIL. **Lei nº 13.105, de 16 de março de 2015**. Código de Processo Civil. Diário Oficial da União: seção 1, Brasília, DF, 17 mar. 2015.
 
+### Lei 16402
+
 SÃO PAULO (Estado). **Lei nº 16.402, de 22 de março de 2016**. Disciplina o parcelamento, o uso e a ocupação do solo no Município de São Paulo. Diário Oficial da Cidade de São Paulo: São Paulo, SP, 23 mar. 2016.
+
+### Decreto 57565
 
 SÃO PAULO (Município). **Decreto nº 57.565, de 23 de dezembro de 2016**. Regulamenta a Lei nº 16.402, de 22 de março de 2016, que disciplina o Parcelamento, Uso e Ocupação do Solo. Diário Oficial da Cidade de São Paulo: São Paulo, SP, 24 dez. 2016.
 
