@@ -769,4 +769,4 @@ SÃO PAULO (Estado). **Lei nº 16.402, de 22 de março de 2016**. Disciplina o p
 
 SÃO PAULO (Município). **Decreto nº 57.565, de 23 de dezembro de 2016**. Regulamenta a Lei nº 16.402, de 22 de março de 2016, que disciplina o Parcelamento, Uso e Ocupação do Solo. Diário Oficial da Cidade de São Paulo: São Paulo, SP, 24 dez. 2016.
 
-DATA: xx/09/2024
+DATA: 09/01/2025
